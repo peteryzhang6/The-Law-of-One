@@ -1,0 +1,3 @@
+
+# Density
+From the age of a child of 0-1~2 is the red ray of simply being. then from 2 to 24 is the orange ray of movement and growth of the being. then 24-28 is the yellow ray of self conscious and the choice of serving others. next is the green ray to 44 or 44 years? so 72 (2068)? of knowing love and compassion. I believe my blue and indigo ray is already activated therefore the rest of life from now on is to know love, then fusing of love and compassion into the wisdom, then to unity, last to eternity within a larger 3rd to 4th Density of Earth?
