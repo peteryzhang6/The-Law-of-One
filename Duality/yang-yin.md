@@ -8,4 +8,4 @@ tags:
 ---
 
 # Yin/Yang and Yang/Yin
-[duality](duality.md)
+[Duality](Duality.md)

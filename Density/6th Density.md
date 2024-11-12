@@ -13,3 +13,5 @@
 
 # personal understanding/distortion
 at the end of 6D STS, one of the must learned lesson, I think, is that of forgiveness/reconcilation. To recall and understand the heartless action of oneself did to other selves and to feel the pain of others as self; to deal and resolve the pain of others as self; to feel the pain caused by the heartless actions of other to self; to deal and resolve the pain that felt by others of knowing their heartless actions through self; and so on and on.
+
+#6/7 You will remember the exercise of the wind. The dissolution into nothingness is the dissolution into unity, for there is no nothingness. From the sixth dimension, we are capable of manipulating, by thought, the intelligent infinity present in each particle of light or distorted light so that we were able to clothe ourselves in a replica visible in the third density of our mind/body/spirit complexes in the sixth density. We were allowed this experiment by the [[Council]] which guards this planet.

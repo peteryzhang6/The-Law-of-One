@@ -1,3 +1,9 @@
+#6/15/1 **Ra:** One major cycle is approximately twenty-five thousand (25,000) of your years. There are three cycles of this nature during which those who have progressed may be harvested. At the end of three major cycles, that is, approximately between seventy-five and seventy-six thousand (75–76,000) of your years, all are harvested regardless of their progress, for during that time the planet itself has moved through the useful part of that dimension and begins to cease being useful for the lower levels of vibration within that density.
+
+#6/16 This sphere is at this time in fourth-dimension vibration. Its material is quite confused due to the society memory complexes embedded in its consciousness. It has not made an easy transition to the vibrations which beckon. Therefore, it will be fetched with some inconvenience.
+
+#6/17 This inconvenience, or disharmonious vibratory complex, has begun several of your years in the past. It shall continue unabated for a period of approximately three oh, thirty 30, of your years.
+
 - 76.15 The 3rd density is a choice 
 - 76.16 The prelude to choice must encompass the laying of the foundation, the establishment of the illusion and the viability of that which can be made spiritually viable. The remainder of the densities is continuous refining of the choice. This also is greatly lengthened, as you would use the term. The choice is, as you put it, the work of a moment but is the axis upon which the creation turns.
 - 82.17 The nature of third density is constant. Its ways are to be learned the same now and ever. Thusly, no matter what form the entity facing these lessons, the lessons and mechanisms are the same. The Creator will learn from Itself. Each entity has unmanifest portions of learning and, most importantly, learning which is involved with other-selves.

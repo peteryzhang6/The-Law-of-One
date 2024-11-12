@@ -11,7 +11,7 @@ When you tell a genius who is pretending to be dumb, 'You are a dumbass', he wil
 ```
 
 The following logic is used to explain the above quote.
-A person consists of duality, of [yin/yang](yang-yin.md), of smart and stupid.
+A person consists of duality, of [yin/yang](Yang-Yin.md), of smart and stupid.
 A smart person is a genius and a stupid person is a dumbass.
 Like an apple tree begets apples and orange tree begets oranges.
 Like the human nature that we laugh at the things that bring us joy and cry at the things that bring us sadness.
@@ -33,6 +33,6 @@ For example:
 - When person A offers person B goods, and B returned nothing. Then person A starts to say things like: "I will bring you more goods when you run out." and did so. Then it is clear that person A in this moment is a selfless person showing its true self. #yin/yin
 - When person A takes goods away from person B, and B returned nothing. Then person A starts to say things like: "This person did not protect his good and I will take more from him." and did so. Then it is clear that person A in this moment is a selfish person showing its true self. #yin/yang
 - When person A takes goods away from person B, and B returned nothing. Then person A starts to say things like: "You did nothing while I took from you. I thank you. So too shall I share my goods with you" and did so. Then it is clear that person A in this moment is a selfless person pretending to be selfish. #yang/yang
-- check more on [polarization](../Terms/polarization.md)
+- check more on [Polarization](Polarization.md)
 But again to note the above example is an expansion on yin and yang, from 2 to 4. But situations in reality is that of 8, 16, 32, to infinity. Thus much more information is needed to reduce infinity back down to 8, to 4, to 2, and to 1.
 Based on the a

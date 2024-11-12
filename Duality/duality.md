@@ -1,4 +1,4 @@
-
+# Duality
 The files in this Duality folder will be consist of two terms of outer opposite polarity or two terms of inner opposite polarity, such as:
 ```
 Terms of outer opposite polarity:

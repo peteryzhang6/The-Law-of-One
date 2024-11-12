@@ -10,7 +10,7 @@
 
 ---
 
-- [forgiveness-reconciliation](../Duality/forgiveness-reconciliation.md)
+- [Forgiveness-Reconciliation](Forgiveness-Reconciliation.md)
 - believe/trust
 	- believe is inner to outer
 	- trust is outer to inner

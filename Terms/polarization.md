@@ -1,19 +1,20 @@
 Polarization can be divided into 2 categories:
-- negative polarity - [service to self](service%20to%20self) (STS)
-- positive polarity - [service to other](service%20to%20other) (STO)
+- negative polarity - service to self (STS)
+- positive polarity - service to other (STO)
+- Please check [STO-STS](STO-STS.md)
 
 For each polarity, the maximum potential can be achieved is 99%.
 - for STS, the 1% left or outside of the self is to provide energy for the self to take
 - for STO, the 1% left or held within the self is to provide energy to serve other selves
 - If STS or STO were to achieve 100%, then STS and STO will no longer have polarity but united with the Infinite Creator
 
-The prerequisite for an entity to polarize to STS or STO is the knowing of the conscious or becoming self-conscious. The birth of self-conscious can also be understood as the creation of [ego](ego).
+The prerequisite for an entity to polarize to STS or STO is the knowing of the conscious or becoming self-conscious. The birth of self-conscious can also be understood as the creation of [Ego](Ego.md).
 At the point of becoming self-conscious, an entity's polarization is determined by the memories it can consciously remember.
 As the entity examines its memories - its past selves or past actions, the entity is able to separate or categorize the past selves and actions into yin and yang:
 - the yin is actions that are STS
 - the yang is actions that are STO
 
-Use the example provided in [smart-stupid](../Duality/smart-stupid.md):
+Use the example provided in [Smart-Stupid](Smart-Stupid.md):
 - To choose to polarize to yang or STO:
 	- observe the memories of yin and consciously turn it into an action of yin/yang
 	- observe the memories of yang and consciously continue so - yang/yang
