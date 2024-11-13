@@ -1,0 +1,37 @@
+# Spells and Chants
+
+- the blessing of air and water: (speak these words with an empty heart)
+	- You flow through me
+	- Fill me with life
+	- Cleanse me of death 
+- the blessing of earth and fire: (of course you can find different ways that you resonate with air, water, earth and fire)
+	- by earth, am i strengthened and stand tall
+	- by fire, am i energized and rise high
+	- by earth, do i feel strengthened and stand tall
+	- by fire, do i feel energized and rise high
+- the blessing of air (hot, moist)
+	- a chant based on the hot and moist property of air, it is best to relate to one's experience of air
+	- healing property of air can be find in moments of experience that brought joy
+	- destructive property of air can be find in moments of experience that brought pain
+	- writing down the full experience of joy and pain
+		- then deducte the paragraphs of the experience into the major words of feeling to create the chant
+		- to chant without chanting is to vividly recall the exact feeling of joy and/or pain 
+- the blessing of water (cold, moist)
+- the blessing of earth (cold, dry)
+- the blessing of fire (hot, dry)
+- blessing of the one/infinite: (can be infinte forms but to only list a few)
+	- We Are One
+	- One is All and All is One
+	- I seek not two but one that is truly and eternal 
+	- Who am I? Where am I? What am I doing?
+	- Good and bad are two faces of the same coin 
+	- As above, so below
+	- As I stare at the abyss, the abyss also stares back at me
+	- Through the reflections of between us, may we find our true selves 
+	- (any sound forms repeating)
+		- Om.....
+		- Em.....
+		- Hm.....
+	- any prayers said through the mouth but heard through the heart
+- blessing of air/fire/earth (cigarettes) (hot,moist)/(hot,dry)/(cold,dry) = (hot,dry) = air bending
+	- though fire and earth, do the air gives me warmth and energy

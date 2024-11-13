@@ -2,21 +2,39 @@
 # 4.9
 **Questioner:** Is it possible for you to instruct healing techniques if we could make available these individuals that have the native ability?
 
-**Ra:** I am Ra. It is possible. We must add that many systems of teach/learning the healing/patient nexus are proper given various mind/body/spirit complexes. We ask your imagination to consider the relative simplicity of the mind in the earlier cycle and the less distorted, but often overly complex, views and thought/spirit processes of the same mind/body/spirit complexes after many incarnations. We also ask your imagination to conceive of those who have chosen the distortion of service and have removed their mind/body/spirit complexes from one dimension to another, thus bringing with them in sometimes totally latent form many skills and understandings which more closely match the distortions of the healing/patient processes.
-# 4.13
-I’m assuming, then, that the selected individual (who has the potential to heal) would necessarily be one who was very much in harmony with the Law of One. Though he may not have any intellectual understanding of it, he should be living the Law of One. Is this correct?
+**Ra:** I am Ra. It is possible. We must add that many systems of teach/learning the healing/patient nexus are proper given various mind/body/spirit complexes. We ask your imagination to consider the relative simplicity of the mind in the earlier cycle and the less distorted, but often overly complex, views and thought/spirit processes of the same mind/body/spirit complexes after many incarnations. 
 
-**Ra:** I am Ra. This is both correct and incorrect. The first case, that being correctness, would apply to one such as the questioner itself who has the distortion towards healing, as you call it.  
-- I think the part of correctness is one focus on the healing of oneself, such as the questioner who has the distortion of healing to seek to heal itself
+We also ask your imagination to conceive of those who have chosen the distortion of service and have removed their mind/body/spirit complexes from one dimension to another, thus bringing with them in sometimes totally latent form many skills and understandings which more closely match the distortions of the healing/patient processes.
+# Who can heal
+Everyone has the potential to heal because "many systems of teach/learning the healing/patient nexus are proper given various mind/body/spirit complexes. #4-9"
+
+"We ask your imagination to consider the relative simplicity of the mind in the earlier cycle and the less distorted, but often overly complex, views and thought/spirit processes of the same mind/body/spirit complexes after many incarnations. #4-9"
+- Interpretation: The ways for an entity to teach/learn the healing/patient grows more and more complex as its number of incarnation increases. 
+- In a worldly view, this can be an entity is clueless and worried about the wounds of others
+	- Then due to the desire to comfort the other, this entity might first begin to use its voice and body language to calm the pain of other
+	- However, the voice and body language can only do so much, this drives the entity to look for herbs to create medicines to directly treat the wound
+	- But the emotional pain or the wound of the mind (PTSD) is still left within the patient, thus drives the entity to seek within the mind to treat the pain
+	- Furthermore, through many incarnations, the entity began to see the wound of the spirit, which is the accumulated pain over many incarnations; thus the entity will seek to heal the spirit
+
+At first the ability of healing maybe hidden to the entity. In order to awaken or activate the ability to heal, one will need to "chosen the distortion of service and have removed one's mind/body/spirit complexes from one dimension to another, thus bringing with them in sometimes totally latent form many skills and understandings which more closely match the distortions of the healing/patient processes. #4-9"
+- The act of choosing the distortion of service is one of [[STO]]
+- The act of removing oneself from one dimension to another can be seen in the previous paragraph about the example of of an entity's attempt to heal others. It first must remove itself from the current dimension of worry and step into a new dimension where the healing/patient process is possible.
+
+# 4-13
+#4-13 **Questioner:** I’m assuming, then, that the selected individual (who has the potential to heal) would necessarily be one who was very much in harmony with the Law of One. Though he may not have any intellectual understanding of it, he should be living the Law of One. Is this correct?
+
+#4-13 **Ra:** I am Ra. This is both correct and incorrect. The first case, that being correctness, would apply to one such as the questioner itself who has the distortion towards healing, as you call it.  
+- Applying that the questioner is living the Law of One but does not have intellectual understanding of Law of One. 
   
-The incorrectness which shall be observed is the healing of those whose activities in your space/time illusion do not reflect the Law of One, but whose ability has found its pathway to intelligent infinity regardless of the plane of existence from which this distortion is found.
-- I think the part of wrongness is that because of the infinite possibility of intelligent infinity, that all is already perfect, all is one as from the POV of Ra, then because one has the desire or distortion to see others as those who do not reflect the Law of One, thus allowed one to travel to a plane of existence where for oneself to experience the 'disharmony' of Law of One of others. 
+#4-13 The incorrectness which shall be observed is the healing of those whose activities in your space/time illusion do not reflect the Law of One, but whose ability has found its pathway to intelligent infinity regardless of the plane of existence from which this distortion is found.
+- *those whose activities in your space/time illusion do not reflect the Law of One* - from a POV of the healer
+- *whose ability has found its path way to intelligent infinity* - 
+- #TODO what is *this distortion*?
+- I think the part of wrongness is that because of the infinite possibility of intelligent infinity, that all is already perfect, all is one as from the POV of Ra, then because one has the desire or distortion to see others as those who do not reflect the Law of One, thus allowed one to travel to a plane of existence where for oneself to experience the 'disharmony' of Law of One of others. ???
 # 4.14
 **Questioner:** (Aside: Jim, did you understand?) I’m a little confused. I partially understood you; I’m not sure that I fully understood you. Could you restate that in another way?
 
-**Ra:** I can restate that in many ways, given this instrument’s knowledge of your vibratory sound complexes. I will strive for a shorter distortion at this time.  
-  
-Two kinds there are who can heal: those such as yourself who, having the innate distortion towards knowledge-giving of the Law of One, can heal but do not; and those who, having the same knowledge, but showing no significant distortion consciously towards the Law of One in mind, body, or spirit, yet and nevertheless have opened a channel to the same ability.  
+**Ra:** Two kinds there are who can heal: those such as yourself who, having the innate distortion towards knowledge-giving of the Law of One, can heal but do not; and those who, having the same knowledge, but showing no significant distortion consciously towards the Law of One in mind, body, or spirit, yet and nevertheless have opened a channel to the same ability.  
   
 The point being that there are those who, without proper training, shall we say, nevertheless, heal. It is a further item of interest that those whose life does not equal their work may find some difficulty in absorbing the energy of intelligent infinity and thus become quite distorted in such a way as to cause disharmony in themselves and others and perhaps even find it necessary to cease the healing activity. Therefore, those of the first type, those who seek to serve and are willing to be trained in thought, word, and action are those who will be able to comfortably maintain the distortion towards service in the area of healing.
 # 4.17
@@ -26,8 +44,8 @@ The point being that there are those who, without proper training, shall we say,
   
 The synopsis is a very appropriate entry that you might understand what is involved.  
   
-Firstly, the mind must be known to itself. This is perhaps the most demanding part of healing work. If the mind knows itself then the most important aspect of healing has occurred, for consciousness is the microcosm of the Law of One.  
-- 11-08-2024 Fri: I see this as me typing out all the pains, angers, madness, frustrations, and many other emotions from 09-26-2024 and working on organizing them in Obsidian into a more readable and more easily understood format. And yes, it is a lot of work. I also remember the conversations happened on 10-19-2024 and days after that. But those were not recorded thus it would be hard 
+Firstly, the mind must be known to itself. This is perhaps the most demanding part of healing work. If the mind knows itself then the most important aspect of healing has occurred, for consciousness is the microcosm of the Law of One. 
+- Check [Healing of the Mind](The%20Mind.md#Healing%20of%20the%20Mind)
   
 The second part has to do with the disciplines of the body complexes. In the streamings reaching your planet at this time, these understandings and disciplines have to do with the balance between love and wisdom in the use of the body in its natural functions.  
 - 4.18: Imagine the body. Imagine the more dense aspects of the body. Proceed therefrom to the very finest knowledge of energy pathways which revolve and cause the body to be energized. Understand that all natural functions of the body have all aspects from dense to fine, and can be transmuted to what you may call sacramental. This is a brief investigation of the second area.  
@@ -38,6 +56,7 @@ The third area is the spiritual, and in this area the first two disciplines are 
 # The Laws of Healing
 ## 4.20 
 #4/20/2**One of the primal distortions of the Law of One is that of healing.** Healing occurs when a mind/body/spirit complex realizes, deep within itself, the Law of One; that is, that there is no disharmony, no imperfection; that all is complete and whole and perfect. Thus, the intelligent infinity within this mind/body/spirit complex re-forms the illusion of body, mind, or spirit to a form congruent with the Law of One. **The healer acts as energizer or catalyst for this completely individual process.**
+- my thoughts: In year 2021-2024, I said multiple times to my parents one of my realizations about depression is that "You can't save those who don't want to be saved." Thus I understand the healer is an energizer or catalyst for the patient. The healer who doesn't heal but instead let the patient become the healer itself. Thus the healer see the Creator within the other self. Jesus knows himself to be perfect and see the perfection within the sick ones, thus when the sick ones came to Jesus, Jesus didn't heal them but said "Through your belief in me, thus you are healed" and the sick were healed. Because the sick ones saw perfection in Jesus, and Jesus returned the perfection by letting them know they are perfect too. It is funny this excerpt in on 4-20 lmao. 
   
 #4/20/3 One item which may be of interest is that a healer asking to learn must take the distortion understood as responsibility for that ask/receiving, thus healing. This is an honor/duty which must be carefully considered in free will before the asking.
 # 5.1
