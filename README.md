@@ -22,7 +22,6 @@ The repo currently contains files I created previously in other locations, thus 
 - detailed comments and understanding will be added here and there depends on if I have inspirations on them
 
 # Related Repos
-- [Peter Yunpeng Zhang](https://github.com/peteryzhang6/pyzzyp) (Currently private and WIP)
 - [The Law of One](https://github.com/peteryzhang6/The-Law-of-One)
 - [Jar of Water of Life](https://github.com/peteryzhang6/Jar-of-Water-of-Life)
 - [HAIxTech](https://github.com/peteryzhang6/HAIxTech)
