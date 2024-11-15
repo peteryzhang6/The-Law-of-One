@@ -1,3 +1,7 @@
+**NOTE:** 
+- This repo is Working In Progress.
+- If links in this repo doesn't work, then the links are probably linking to another file in other repos
+- Put the *related repos* under the same folder and create a vault using Obsidian.
 # The Law of One
 *Please use text editor Obsidian or similar software for best reading experiences*
 
@@ -16,3 +20,9 @@ The repo currently contains files I created previously in other locations, thus 
 # TODOs
 - currently going through Law of One session by session to extract excerpts and categorize them into appropriate files along with minor comments
 - detailed comments and understanding will be added here and there depends on if I have inspirations on them
+
+# Related Repos
+- [Peter Yunpeng Zhang](https://github.com/peteryzhang6/pyzzyp) (Currently private and WIP)
+- [The Law of One](https://github.com/peteryzhang6/The-Law-of-One)
+- [Jar of Water of Life](https://github.com/peteryzhang6/Jar-of-Water-of-Life)
+- [HAIxTech](https://github.com/peteryzhang6/HAIxTech)

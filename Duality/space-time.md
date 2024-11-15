@@ -3,12 +3,9 @@ aliases:
   - space/time
   - time/space
 tags:
-  - space/time
-  - time/space
+  - space-time
 ---
 # space-time
-space/time and time/space
-
 In Law of One, Ra coupled space and time together, and a reason I understand this as:
 - When we are going to a place, the space is decided by point A and point B, thus we need to figure out the time it takes to travel from point A to point B. Thus space/time.
 - When we only have 1 hour for lunch, we then think about from our point A of a radius of 1 hour time to decide a point B for lunch. Thus time/space.
@@ -20,6 +17,10 @@ To overcome the restraint of space and time, I believe one should first start wi
 	- to create the space and time for writing - my desk with computer on it
 	- to create the space and time for sleeping - my bed 
 	- to create the space and time for smoking - balcony or outside
+		- to calm myself
+		- to relax myself
+		- to enjoy the moment
+		- to ...
 	- to create the space and time for eating - dinning room
 	- to create the space and time for playing 
 	- to create the space and time for learning
