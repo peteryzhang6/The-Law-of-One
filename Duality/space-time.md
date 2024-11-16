@@ -35,7 +35,7 @@ To overcome the restraint of space and time, I believe one should first start wi
 	- to create the space and time for death
 -  "For I hold the key to life and death thus I consciously choose:"
 	- to create the space and time within me to unite pain and joy
-	- to create the space and time within me to revive old death into new life
+	- to create the space and time within me to turn old death into new life
 
 #6/9 **Ra:** Do you request space/time present information or space/time continuum information?
-- Ra used space/time with present and  
+- what is the difference between present information and continuum information?

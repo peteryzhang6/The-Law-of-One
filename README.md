@@ -2,6 +2,7 @@
 - This repo is Working In Progress.
 - If links in this repo doesn't work, then the links are probably linking to another file in other repos
 - Put the *related repos* under the same folder and create a vault using Obsidian.
+- One shall read the repo and repos related with an eye of discernment 
 # The Law of One
 *Please use text editor Obsidian or similar software for best reading experiences*
 
@@ -22,6 +23,14 @@ The repo currently contains files I created previously in other locations, thus 
 - detailed comments and understanding will be added here and there depends on if I have inspirations on them
 
 # Related Repos
+- [Peter Yunpeng Zhang](https://github.com/peteryzhang6/pyzzyp) 
+	- Private repo
 - [The Law of One](https://github.com/peteryzhang6/The-Law-of-One)
+	- The understanding of this repo came from connecting experiences within Peter Yunpeng Zhang repo, but I think it is somewhat unnecessary to release that repo as one can use the understanding from this repo to work on their own life experiences and arrive at the same understanding
+	- This repo is large can be seen as the healing of the mind in [[LOO Healing]]. To see the Creator that lies in the mind of self and other selves.
 - [Jar of Water of Life](https://github.com/peteryzhang6/Jar-of-Water-of-Life)
+	- An experiment born out of the understanding of Oneness
+	- This repo is large can be seen as the healing of the body in [[LOO Healing]]. To see the Creator in physical manifested bodies, both in human and in 2D beings.
 - [HAIxTech](https://github.com/peteryzhang6/HAIxTech)
+	- A theory born out of the understanding of Oneness
+	- This repo is large can be seen as the healing of the spirit in [[LOO Healing]]. To see the Creator that exists in ALL.

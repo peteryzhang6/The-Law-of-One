@@ -1,4 +1,7 @@
 ---
+aliases:
+  - learn/teach
+  - teach/learn
 tags:
   - learn-teach
 ---
