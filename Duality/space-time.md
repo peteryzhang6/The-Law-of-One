@@ -5,7 +5,7 @@ aliases:
 tags:
   - space-time
 ---
-# space-time
+# Space and Time
 In Law of One, Ra coupled space and time together, and a reason I understand this as:
 - When we are going to a place, the space is decided by point A and point B, thus we need to figure out the time it takes to travel from point A to point B. Thus space/time.
 - When we only have 1 hour for lunch, we then think about from our point A of a radius of 1 hour time to decide a point B for lunch. Thus time/space.

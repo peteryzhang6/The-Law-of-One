@@ -6,7 +6,6 @@ tags:
   - wisdom
   - ancientKnowledge
 ---
-
 ```
 The Emerald Tablets of Thoth the Atlantean
 
@@ -155,7 +154,7 @@ He who by progress has grown from the darkness, lifted himself from the night in
 
 Seated within the flower of radiance sit seven Lords from the Space-Time above us, helping and guiding through infinite Wisdom, the pathway through time of the children of men. Mighty and strange, they, veiled with their power, silent, all-knowing, drawing the Life force, different yet one with the children of men. Aye, different, and yet one with the Children of Light. 
 
-Custodians and watchers of the force of man's bondage, ready to loose when the light has been reached. First and most mighty, sits the Veiled Presence, Lord of Lords, the infinite Nine, over the others from each Cosmic cycle, weighing and watching the progress of men. 
+Custodians and watchers of the force of man's bondage, ready to loose when the light has been reached. First and most mighty, sits the Veiled Presence, Lord of Lords, the [[Council#Members and Functions|infinite Nine]], over the others from each Cosmic cycle, weighing and watching the progress of men. 
 
 Under HE, sit the Lords of the Cycles; Three, Four, Five, and Six, Seven, Eight, each with his mission, each with his power, guiding, directing the destiny of man. There sit they, mighty and potent, free of all time and space. Not of this world they, yet akin to it, Elder Brothers they, of the children of men. Judging and weighing, they with their wisdom, watching the progress Light among men. 
 

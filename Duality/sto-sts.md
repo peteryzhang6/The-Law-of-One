@@ -3,10 +3,17 @@ aliases:
   - STO
   - STS
 ---
+# STO and STS
 # Service to Others (STO)
 The STO needs STS when the self is in danger as STS is best known for its ability to preserve the self.
+
+**7.15**: However, service to others results in service to self, thus preserving and further harmonizing the distortions of those entities seeking intelligent infinity through these disciplines.
 # Service to self (STS)
 The STS needs STO when the providing source is in danger as STO is best known for its ability to preserve the outer source.
+
+**7.14:** Consider, if you will, a simple example of intentions which are bad/good. This example is Adolf. This is your vibratory sound complex. The intention is to presumably unify by choosing the distortion complex called elite from a social memory complex and then enslaving, by various effects, those who are seen as the distortion of not-elite. There is then the concept of taking the social memory complex thus weeded and adding it to a distortion thought of by the so-called Orion group as an empire. The problem facing them is that they face a great deal of random energy released by the concept of separation. This causes them to be vulnerable as the distortions amongst their own members are not harmonized.
+
+Check [[Orion]].
 
 # How should STO treat STS
 Like Ra said, with Love and Light.

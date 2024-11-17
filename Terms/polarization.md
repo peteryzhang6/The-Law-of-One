@@ -1,3 +1,4 @@
+# Polarization
 Polarization can be divided into 2 categories:
 - negative polarity - service to self (STS)
 - positive polarity - service to other (STO)

@@ -3,6 +3,7 @@ aliases:
   - light/love
   - love/light
 ---
+# Light and Love
 How I understand what love and light is and I will use the Sun as an example:
 - The light is the outward force of the Infinite Creator. The sunlight of the Sun produces and brightens its surroundings.
 - The love is the inward force of the Infinite Creator. The gravity of the Sun that hold onto all its surroundings.
