@@ -1,7 +1,7 @@
+# 1st Density
 - Red ray energy
-
-9.5 
-- water, fire, air, and earth
+# Entities
+9.5: The first entities upon this planet(Earth) were water, fire, air, and earth
 
 13.16
 - Each step recapitulates intelligent infinity in its discovery of awareness. In a planetary environment all begins in what you would call chaos, energy undirected and random in its infinity. Slowly, in your terms of understanding, there forms a focus of self-awareness. Thus the Logos moves. Light comes to form the darkness, according to the co-Creator’s patterns and vibratory rhythms, so constructing a certain type of experience. This begins with first density which is the density of consciousness, the mineral and water life upon the planet learning from fire and wind the awareness of being. This is the first density.

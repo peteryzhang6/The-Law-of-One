@@ -15,7 +15,7 @@ The excerpts taken from The Law of One will be labelled in tags or titles in the
 The format will be one that like those often used in bible studies, by taking excerpts that relate to each other and can build strong bonds. Like Ra and those in L/L Research Channelings often said: "Take what you resonate and leave those that doesn't." Spiritual materials outside of Law of One will also be added to further support and unite understandings.
 - **1.10:** Thus, to attempt to discern and weave your way through as many group mind/body/spirit distortions as possible among your peoples in the course of your teaching is a very good effort to make
 
-The repo currently contains files I created previously in other locations, thus may lack the inter-connection and formats. And I currently intent this repo to be used with a focus solely on the development of individual mind/body/spirit complex, thus materials that doesn't focus on the mind/body/spirit complex will be excluded, and certain materials will be simply jotted down and not edited. If I have time, then those excluded materials will be added later on. Or one can simply go study it in Law of One website for one's own interest/distortion.
+The repo currently contains files I created previously in other locations, thus may lack the inter-connection and formats. And I currently intent this repo to be used with a focus solely on the development of individual mind/body/spirit complex, thus materials that doesn't focus on the mind/body/spirit complex will be excluded or simply jotted down and not edited. If I have time, then those excluded materials will be added later on. Or one can simply go study it in Law of One website for one's own interest/distortion.
 # Table of Contents
 。。。
 

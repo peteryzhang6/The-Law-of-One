@@ -1,5 +1,9 @@
 # Orion
+Has [[UFO]] landings.
+# Purpose
+8.12: Their purpose is conquest, unlike those of the Confederation who wait for the calling. The so-called Orion group calls itself to conquest.
 
+8.14: As we have said previously, their objective is to locate certain mind/body/spirit complexes which vibrate in resonance with their own vibrational complex, then to enslave the un-elite, as you may call those who are not of the Orion vibration.
 # Density of Orion
 **7.15**
 
@@ -14,5 +18,5 @@ Those seeking intelligent infinity through the use of service to self create the
   
 You will recall that we went into some detail as to how those not oriented towards seeking service for others yet, nevertheless, found and could use the gateway to intelligent infinity. This is true at all densities in our octave. We cannot speak for those above us, as you would say, in the next quantum or octave of beingness. This is, however, true of this octave of densities. The beings are harvested because they can see and enjoy the light/love of the appropriate density. Those who have found this light/love, love/light without benefit of a desire for service nevertheless, by the Law of Free Will, have the right to the use of that light/love for whatever purpose. Also, it may be inserted that there are systems of study which enable the seeker of separation to gain these gateways.  
 - *The beings are harvested because they can see and enjoy the light/love of the appropriate density.* 
-- 
+
 This study is as difficult as the one which we have described to you, but there are those with the perseverance to pursue the study just as you desire to pursue the difficult path of seeking to know in order to serve. The distortion lies in the fact that those who seek to serve the self are seen by the Law of One as precisely the same as those who seek to serve others, for are all not one? To serve yourself and to serve other is a dual method of saying the same thing, if you can understand the essence of the Law of One.
