@@ -1,7 +1,7 @@
 # Law of Free Will
 Is one of the [[Primal Distortions]] of Law of One.
 
-Can be seen as a product or result of 1st Density, of beingness of the consciousness.
+Can be seen as a product or result of 1st - 3rd Density, of the beingness of, the movement of, and the conscious choice of the consciousness.
 
 Thus to violate the free will of other beings can be seen as one of the "worst" thing one can do, from the perspective of STS beings.
 

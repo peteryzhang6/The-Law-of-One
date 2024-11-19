@@ -59,9 +59,4 @@ In this form we decided to come among your peoples. Your peoples at that time we
 - *We remember sorrow* - my first dream
 
 # Help Ra can offer
-7.1: The service available for our offering to those who call us is equivalent to the square of the distortion/need of that calling divided by, or integrated with, the basic Law of One in its distortion indicating the free will of those who are not aware of the unity of creation.
-- 7.3: The square is sequential — one, two, three, four, each squared by the next number.
-- 7.4: If ten, only ten, entities on earth required your services how would you compute their call using this square rule?
-	- **Ra:** We would square one ten sequential times, raising the number to the tenth square.
-
 7.2: As we just repeated through this instrument, we must integrate all of the portions of your social memory complex in its illusory disintegration form. Then the product of this can be seen as the limit of our ability to serve. We are fortunate that the Law of Service squares the desires of those who call. Otherwise, we would have no beingness in this time/space at this present continuum of the illusion. In short, you are basically correct. The thought of not being able is not a part of our basic thought-form complex towards your peoples but rather is a maximal consideration of what is possible.

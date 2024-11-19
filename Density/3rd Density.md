@@ -3,10 +3,6 @@
 
 76.15 The 3rd density is a choice 
 
-
-
-
-
 76.16 The prelude to choice must encompass the laying of the foundation, the establishment of the illusion and the viability of that which can be made spiritually viable. The remainder of the densities is continuous refining of the choice. This also is greatly lengthened, as you would use the term. The choice is, as you put it, the work of a moment but is the axis upon which the creation turns.
 - check [[Polarization]]
 
@@ -14,8 +10,10 @@
 
 # Earth's 3D
 6.15: **Ra:** One major cycle is approximately twenty-five thousand (25,000) of your years. There are three cycles of this nature during which those who have progressed may be harvested. At the end of three major cycles, that is, approximately between seventy-five and seventy-six thousand (75–76,000) of your years, all are harvested regardless of their progress, for during that time the planet itself has moved through the useful part of that dimension and begins to cease being useful for the lower levels of vibration within that density.
+
+10.6: Not only do we have entities from [[Maldek]] and [[Mars]], There are entities experiencing your time/space continuum who have originated from many, many places, as you would call them, in the creation, for when there is a cycle change, those who must repeat then find a planetary sphere appropriate for this repetition. It is somewhat unusual for a planetary mind/body/spirit complex to contain those from many, many, various loci, but this explains much, for, you see, you are experiencing the third-dimensional occurrence with a large number of those who must repeat the cycle. The orientation, thus, has been difficult to unify even with the aid of many of your teach/learners.
 # First entities of Earth 3D
-9.6: The first of those to come here were brought from another planet in your solar system called by you the Red Planet, Mars. This planet’s environment became inhospitable to third-density beings. The first entities, therefore, were of this race, as you may call it, manipulated somewhat by those who were guardians at that time.
+9.6: The first of those to come here were brought from another planet in your solar system called by you the Red Planet, [[Mars]]. This planet’s environment became inhospitable to third-density beings. The first entities, therefore, were of this race, as you may call it, manipulated somewhat by those who were guardians at that time.
 - 9.11: this transfer occurred approximately seven five zero zero zero (75,000) years ago.
 
 9.7: The race is a combination of the mind/body/spirit complexes of those of your so-called Red Planet and a careful series of genetical adjustments made by the guardians of that time. These entities arrived, or were preserved, for the experience upon your sphere by a type of birthing which is non-reproductive, but consists of preparing genetic material for the incarnation of the mind/body/spirit complexes of those entities from the Red Planet.
