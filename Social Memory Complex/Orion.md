@@ -12,6 +12,18 @@ Has [[UFO]] landings.
 11.22: However, very positively, as you would call this distortion, oriented so-called scientists have received information intended to unlock peaceful means of progress which redounded unto the last echoes of potential destruction due to further reception of other scientists of a negative orientation/distortion.
 # Crusader
 11.16: The crusaders move in their chariots to conquer planetary mind/body/spirit social complexes before they reach the stage of achieving social memory.
+
+12.9: [[UFO|Many of those]] seen in your skies are of the Orion group. They send out messages. Some are received by those who are oriented towards service to others. These messages then are altered to be acceptable to those entities while warning of difficulties ahead. This is the most that self-serving entities can do when faced with those whose wish is to serve others. The contacts which the group finds most helpful to their cause are those contacts made with entities whose orientation is towards service to self. There are many thought-form entities in your skies which are of a positive nature and are the projections of the Confederation. Other sightings are due to the inadvertent visualization by your peoples’ optical mechanisms of your own government’s weaponry.
+
+12.18: the crusaders of Orion use two types of entities to do their bidding, shall we say. The first type is a thought-form; the second, a kind of robot.
+### Men in Black
+12.21: The Men in Black are a thought-form type of entity which have some beingness to their make-up. They have certain physical characteristics given them. However, their true vibrational nature is without third-density vibrational characteristics and, therefore, they are able to materialize and dematerialize when necessary.
+## Chariot
+12.2
+
+The term chariot is a term used in warfare among your peoples. That is its significance. The shape of the Orion craft is one of the following: firstly, the elongated, ovoid shape which is of a darker nature than silver but which has a metallic appearance if seen in the light. In the absence of light, it appears to be red or fiery in some manner.  
+  
+Other craft include disc-shaped objects of a small nature approximately twelve feet in your measurement in diameter, the box-like shape approximately forty feet to a side in your measurement. Other craft can take on a desired shape through the use of thought control mechanisms. There are various civilization complexes which work within this group. Some are more able to use intelligent infinity than others. The information is very seldom shared; therefore, the chariots vary greatly in shape and appearance.
 # Density of Orion
 **7.15**
 

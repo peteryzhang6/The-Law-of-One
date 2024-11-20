@@ -1,4 +1,6 @@
 # 1st Density
+<- [[8th Density]] | [[2nd Density]] ->
+
 - Red ray energy
 # Entities
 9.5: The first entities upon this planet(Earth) were water, fire, air, and earth

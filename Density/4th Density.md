@@ -7,7 +7,7 @@
 
 6.17: This inconvenience, or disharmonious vibratory complex, has begun several of your years in the past. It shall continue unabated for a period of approximately three oh, thirty 30, of your years.
 
-12.17: is, by choice, not visible to third density
+12.17: The fourth density is, by choice, not visible to third density. It is possible for fourth density to be visible. However, it is not the choice of the fourth-density entity to be visible due to the necessity for concentration upon a rather difficult vibrational complex which is the third density you experience.
 
 33.20: density of love, compassion, and understanding
 

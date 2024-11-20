@@ -2,7 +2,6 @@
 <- [[7th Density]] | [[1st Density]] ->
 
 1st density of next octave
-
 - 52.12
 	- is both omega and alpha; the spiritual mass of the infinite universes becoming one central sun or Creator once again
 	- Then is born a new universe, a new infinity, a new Logos which incorporates all that the Creator has experienced of Itself

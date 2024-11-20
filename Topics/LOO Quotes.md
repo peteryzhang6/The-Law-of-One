@@ -19,4 +19,4 @@ Ra: We search your mind to find the vibration *Alrac*. It is this vibration from
 To [[Learn-Teach|teach/learn]] is the Law of One in one of its most elementary distortions.
 
 # 7.12
-When your peoples grasp [[infinity]], then and only then, can the gateway be opened to the Law of One.
+When your peoples grasp [[Infinity]], then and only then, can the gateway be opened to the Law of One.

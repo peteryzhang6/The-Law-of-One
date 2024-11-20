@@ -20,6 +20,8 @@
 - *bacteriological warfare* - COVID 2019(?)
 
 8.27-28: The crafts have no pilot and are controlled by computer from a remote source of data.
+
+12.8: Opening windows in quarantine caused "USF Flaps" where large number of UFOs show up like in 1973.
 # 8.3
 **Questioner:** Are these craft that are of our peoples from what we call planes that are not incarnate at this time? Where are they based?
 

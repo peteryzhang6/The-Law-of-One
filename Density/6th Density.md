@@ -1,3 +1,6 @@
+# 6th Density
+<- [[5th Density]] | [[7th Density]] ->
+
 - That of Law of One
 - 33.20
 	- color would be a whiteness which contains a "golden" quality (schizo: the profile pic I used for Bananafloatie on Reddit lol, an entity of 6D STO in a 3to4D larger infinity, maybe a 6D STO in 4D ascending into 5D?? I dont know which density I am, it is hard to look at when I feel my mind is clogged sometimes)

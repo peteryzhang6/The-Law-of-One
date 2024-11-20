@@ -1,3 +1,6 @@
+# 5th Density
+<- [[4th Density]] | [[6th Density]] ->
+
 - 33.20
 	- color would be extremely white in vibration
 	- density of light and wisdom (wisdom = power, power = light from Thoth)

@@ -3,7 +3,6 @@ aliases:
   - Tao
   - 道
 ---
----
 正向思维和逆向思维犹如道的阴阳。如果一人能够将正向思维的终点与逆向思维的起点和逆向思维的终点与正向思维的起点做链接，那么永恒的道就会浮现 （The meaning of ouroboros)
 - positive thinking and negative thinking; uncontrolled positive thinking leads to toxic positivity; uncontrolled negative thinking leads to depression
 

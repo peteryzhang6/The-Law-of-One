@@ -27,7 +27,7 @@ Chants focused on the Beingness of [[1st Density]] consciousness
 - the blessing of water (cold, moist)
 - the blessing of earth (cold, dry)
 - the blessing of fire (hot, dry)
-- - blessing of air/fire/earth (cigarettes) (hot,moist)/(hot,dry)/(cold,dry) = (hot,dry) = air bending
+- - blessing of air/fire/earth (cigarettes) (hot, moist)/(hot, dry)/(cold, dry) = (hot, dry) = air bending
 	- though fire and earth, do the air gives me warmth and energy
 # 2D
 Chants focusing on the Movement of [[2nd Density]] consciousness
@@ -38,7 +38,7 @@ Chants focusing on the Choice of [[3rd Density]] consciousness
 - Why? 
 # 4D
 Chants focusing on the Love and Compassion of [[4th Density]] consciousness
-- [[Jesus#Luke 11 2-4|Jesus' Prayer]]
+- [[Jesus Christ#Luke 11 2-4|Jesus' Prayer]]
 # 5D
 Chants focusing on the Light and Wisdom of [[5th Density]] consciousness
 - [[ZIN-URU Mantra of Thoth the Atlantian.mp3]]
@@ -62,4 +62,4 @@ Chants focusing on the Foreverness of [[7th Density]] consciousness
 # 8D
 Chants focusing on personal evolution and a new sense of Beingness of [[8th Density]] consciousness
 
-I don't know what chants can be categorized as 8D but I think it would be one of the act to learn new chants and gain new understanding. It would also be something of a phoenix. Maybe in consciousness term, of total forgetting.
+I don't know what chants can be categorized as 8D but I think it would be one of the act to learn new chants and gain new understanding. It would also be something of a phoenix. Maybe in consciousness term, of total forgetting and re-rememberance.

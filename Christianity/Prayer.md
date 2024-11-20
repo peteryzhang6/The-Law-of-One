@@ -1,7 +1,7 @@
 # Prayer
 A form of consciously sending and receiving love/light to/from the One Infinite Creator
 
-- Example: [[Jesus#Luke 11 2-4|Jesus' Prayer]]
+- Example: [[Jesus Christ#Luke 11 2-4|Jesus' Prayer]]
 - [[Chant|Personal Spells and Chants]]
 # Power of Prayer
 If one wishes to strengthen its prayer, then one must maintain a fully focused conscious mind and open heart during its prayer and perform the prayer in repetition - the repetition can be one in a continuous time period, or certain time during each day, but to note it is up to one's own choice that best fits them.

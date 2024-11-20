@@ -3,7 +3,6 @@ aliases:
   - heal/hurt
   - hurt/heal
 ---
-
 # Healer and Patient
 
 # 4.9
@@ -26,7 +25,6 @@ We also ask your imagination to conceive of those who have chosen the distortion
 4.9: At first the ability of healing maybe hidden to the entity. In order to awaken or activate the ability to heal, one will need to "chosen the distortion of service and have removed one's mind/body/spirit complexes from one dimension to another, thus bringing with them in sometimes totally latent form many skills and understandings which more closely match the distortions of the healing/patient processes."
 - The act of choosing the distortion of service is one of [[STO-STS|STO]]
 - The act of removing oneself from one dimension to another can be seen in the previous paragraph about the example of of an entity's attempt to heal others. It first must remove itself from the current dimension of worry and step into a new dimension where the healing/patient process is possible.
-
 # 4-13
 **Questioner:** I’m assuming, then, that the selected individual (who has the potential to heal) would necessarily be one who was very much in harmony with the Law of One. Though he may not have any intellectual understanding of it, he should be living the Law of One. Is this correct?
 
@@ -45,6 +43,14 @@ The incorrectness which shall be observed is the healing of those whose activiti
   
 The point being that there are those who, without proper training, shall we say, nevertheless, heal. It is a further item of interest that those whose life does not equal their work may find some difficulty in absorbing the energy of intelligent infinity and thus become quite distorted in such a way as to cause disharmony in themselves and others and perhaps even find it necessary to cease the healing activity. Therefore, those of the first type, those who seek to serve and are willing to be trained in thought, word, and action are those who will be able to comfortably maintain the distortion towards service in the area of healing.
 
+# 12.31 Self-healing
+The self-healing distortion is effected through realization of the intelligent infinity resting within. This is blocked in some way in those who are not perfectly balanced in bodily complexes. The blockage varies from entity to entity. It requires the conscious awareness of the spiritual nature of reality, if you will, and the corresponding pourings of this reality into the individual mind/body/spirit complex for healing to take place.  
+  
+We will use this instrument as example. The portions of its ailment, as you call this distortion complex, that can be perfected in balance are due primarily to a blockage of the indigo-ray or pineal energy center. This center receives the intelligent energy from all sources lawful within the one Creation; that is, lawful in this third-density distortion or illusion. If there is no blockage, these energies pour or stream down into the mind/body/spirit complex perfecting moment by moment the individual’s body complex.  
+  
+This instrument also experiences some distortion of the green-ray energy center which you may call the heart center. It is overly open due to an intensive desire distortion on the part of this mind/body/spirit complex towards service to others, or as you may call it, universal love. This entity, therefore, spends itself without regard to its reserves of mind/body/spirit complex distortion in regard to what you call strength or energy. This distortion is primarily due to the blockage of the indigo ray. As we have said before, the misapprehension distortion of the instrument responsible for this blockage is the basic orientation towards a belief in unworthiness. The unworthiness distortion blocks the free flow of intelligent energy.
+  
+The seventh or violet ray is unimpaired, this being not only an energy receptor but a sum total of the vibratory level of the individual. The other energy centers are also quite clear. The solution to healing in this case is action that puts into practice the peaceful understanding in humility distortion that the entity is one with the Creator, therefore perfected and not separate. In each case of what you would call ill health one or more of these energy centers is blocked. The intelligence of the mind/body/spirit complex needs then to be alerted either by the self as healer or by the catalyst of another healer, as we have said before.
 # Three Steps of Healing  
 4.20 One item which may be of interest is that a healer asking to learn must take the distortion understood as responsibility for that ask/receiving, thus healing. This is an honor/duty which must be carefully considered in free will before the asking.  
 

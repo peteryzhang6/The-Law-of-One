@@ -1,2 +1,11 @@
 # Earth
+# Quarantine of Earth
+12.3: Every effort is made to quarantine this planet. However, the network of guardians, much like any other pattern of patrols on whatever level, does not hinder each and every entity from penetrating quarantine, for if request is made in light/love, the Law of One will be met with acquiescence. If the request is not made, due to the slipping through the net, then there is penetration of this net.
 
+12.5: There is contact at the level of light-form or lightbody-being depending upon the vibratory level of the guardian. These guardians sweep reaches of your Earth’s energy fields attempting to be aware of any entities approaching. An entity which is approaching is hailed in the name of the One Creator. Any entity thus hailed is bathed in love/light and will of free will obey the quarantine due to the power of the Law of One.
+
+12.6: To not obey quarantine after being hailed on the level of which we speak would be equivalent to your not stopping upon walking into a solid brick wall.
+
+12.7: The vibratory level of those able to reach the quarantine boundaries is such that upon seeing the love/light net it is impossible to break this Law. Therefore, nothing happens. No attempt is made. There is no confrontation. The only beings who are able to penetrate the quarantine are those who discover windows or distortions in the space/time continua surrounding your planet’s energy fields. Through these windows they come. These windows are rare and unpredictable.
+
+12.13: Through telepathy the philosophy of the Law of One with the distortion of service to self is promulgated. In advanced groups there are rituals and exercises given and these have been written down just as the service-to-others oriented entities have written down the promulgated philosophy of their teachers. The philosophy concerns the service of manipulating others that they may experience service towards the other-self, thus through this experience becoming able to appreciate service to self. These entities thus would become oriented towards service to self and in turn manipulate yet others so that they in turn might experience the service towards the other-self.
