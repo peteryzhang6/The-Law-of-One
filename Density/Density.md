@@ -8,6 +8,9 @@
 - [[7th Density]]
 - [[8th Density]]
 
+1st to 7th Density together are called an octave.
+
+13.20: All of the octave of your densities would be clearly visible were not the fourth through the seventh freely choosing not to be visible.
 # 7.16 Density Progression
 The progress through densities is sequential. A fifth-density social memory complex would be comprised of mind/body/spirit complexes harvested from fourth density. Then the conglomerate or mass mind/body/spirit complex does its melding and the results are due to the infinitely various possibilities of combination of distortions.
 

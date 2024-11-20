@@ -5,6 +5,8 @@
 
 - #1-0 We greet you in the love and in the light of our Infinite Creator.
 
+13.3: We are messengers.
+- 13.4: An humble messenger of the Law of One
 # Channeling Ra
 #1-0 We will therefore describe the type of vibration which is being sent. The instrument will find us entering the energy field at a slight angle towards the back of the top of the head in a narrow but strong area of intensity.
 # What is Ra's Nature and Purpose?

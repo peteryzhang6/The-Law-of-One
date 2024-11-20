@@ -9,6 +9,8 @@
 
 12.17: The fourth density is, by choice, not visible to third density. It is possible for fourth density to be visible. However, it is not the choice of the fourth-density entity to be visible due to the necessity for concentration upon a rather difficult vibrational complex which is the third density you experience.
 
+13.23: The fourth density is, as we have said, as regularized in its approach as the striking of a clock upon the hour. ... Vibration of love, sometimes called by your people the vibration of understanding
+
 33.20: density of love, compassion, and understanding
 
 16.50 Ra: I am Ra. We ask you to consider as we speak that there are no words for positively describing fourth density. We can only explain what is not and approximate what is. Beyond fourth density our ability grows more limited still until we become without words. That which fourth density is not: it is not of words, unless chosen. It is not of heavy chemical vehicles for body complex activities. It is not of disharmony within self. It is not of disharmony within peoples. It is not within limits of possibility to cause disharmony in any way. Approximations of positive statements: it is a plane of a type of bipedal vehicle which is much denser and more full of life; it is a plane wherein one is aware of the thoughts of other-selves; it is a plane where one is aware of the vibrations of other-selves; it is a plane of compassion and understanding of the sorrows of third density; it is a plane striving towards wisdom or light; it is a plane wherein individual differences are pronounced although automatically harmonized by group consensus.

@@ -2,8 +2,7 @@
 These are last distortions to unite when a being raises from 6D to 7D or the first distortions created when a being raises from 7D to 1D of next octave, assuming the next octave have similar configuration to the current octave.
 
 - [[Law of Free Will]]
-	- 3.14: There is a law which we believe to be one of the more significant primal distortions of the Law of One. That is the Law of Confusion. You have called this the Law of Free Will
-	- 10.12: The Law of One has as one of its primal distortions the free will distortion
+- [[Finity]]
 - [[Learn-Teach]]
 - [[Healer-Patient]]
 	- **4.20:** One of the primal distortions of the Law of One is that of healing.

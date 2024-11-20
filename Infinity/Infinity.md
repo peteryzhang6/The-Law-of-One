@@ -51,3 +51,9 @@ To understand that infinity exists in all can be interrupted as such:
 		- it can also be said the mutation of cells into cancer cells is the result of separation, of separation of oneself from the true path of living
 	- in confronting and understanding this pain, and to unite this pain within one, one can create a unity that is previously unimagined
 - to remember Ra's words that 'black hole is a 3rd density manifestation of the beings that achieved total unity'
+
+>13.5: The first known thing in the creation is infinity. The infinity is creation.
+
+>13.6: Infinity became aware. This was the next step.
+
+[[Intelligent Infinity]]

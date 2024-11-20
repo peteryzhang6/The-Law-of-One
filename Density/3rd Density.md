@@ -1,6 +1,8 @@
 # 3rd Density
 <- [[2nd Density]] | [[4th Density]] ->
 
+13.21: Density of self-consciousness or self-awareness. ... The first density of consciousness of spirit.
+
 76.15 The 3rd density is a choice 
 
 76.16 The prelude to choice must encompass the laying of the foundation, the establishment of the illusion and the viability of that which can be made spiritually viable. The remainder of the densities is continuous refining of the choice. This also is greatly lengthened, as you would use the term. The choice is, as you put it, the work of a moment but is the axis upon which the creation turns.

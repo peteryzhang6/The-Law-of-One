@@ -32,6 +32,7 @@ Chants focused on the Beingness of [[1st Density]] consciousness
 # 2D
 Chants focusing on the Movement of [[2nd Density]] consciousness
 - talk to insects, animals and plants. lol
+- [[LOO Crystal Healing]]
 # 3D
 Chants focusing on the Choice of [[3rd Density]] consciousness
 - Who am I? Where am I? What am I doing?

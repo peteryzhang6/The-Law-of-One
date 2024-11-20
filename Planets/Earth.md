@@ -1,4 +1,11 @@
 # Earth
+13.22: (As of 1981) The sphere upon which you dwell is third density in its beingness of mind/body/spirit complexes. It is now in a space/time continuum, fourth density. This is causing a somewhat difficult harvest.
+# 4D Earth
+13.23
+
+The fourth density is, as we have said, as regularized in its approach as the striking of a clock upon the hour. The space/time of your solar system has enabled this planetary sphere to spiral into space/time of a different vibrational configuration. This causes the planetary sphere to be able to be molded by these new distortions. However, the thought-forms of your people during this transition period are such that the mind/body/spirit complexes of both individual and societies are scattered throughout the spectrum instead of becoming able to grasp the needle, shall we say, and point the compass in one direction.  
+  
+Thus, the entry into the vibration of love, sometimes called by your people the vibration of understanding, is not effective with the present societal complex. Thus, the harvest shall be such that many will repeat the third-density cycle. The energies of your Wanderers, your teachers, and your adepts at this time are all bent upon increasing the harvest. However, there are few to harvest.
 # Quarantine of Earth
 12.3: Every effort is made to quarantine this planet. However, the network of guardians, much like any other pattern of patrols on whatever level, does not hinder each and every entity from penetrating quarantine, for if request is made in light/love, the Law of One will be met with acquiescence. If the request is not made, due to the slipping through the net, then there is penetration of this net.
 
