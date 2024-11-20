@@ -1,6 +1,6 @@
 This is my own interpretation of [The Law of One](https://www.lawofone.info/) based on my own personal experiences.
 
-The Law of One is created through Don, Carla, and Jim by Carla going into trance and channel the social memory complex [Ra](Terms/Ra.md), a humble messenger of Law of One.
+The Law of One is created through Don, Carla, and Jim by Carla going into trance and channel the social memory complex [Ra](Ra.md), a humble messenger of Law of One.
 # General
 # 3.9
 Questioner: I am reminded of the statement, approximately, if you had enough faith, you could say to a mountain to move and the mountain would move. I assume this is approximately what you are saying, and I am assuming that if you are fully aware of the Law of One, then you are able to do these things. Is that correct?

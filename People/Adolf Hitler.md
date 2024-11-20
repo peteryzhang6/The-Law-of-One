@@ -1,0 +1,1 @@
+11.7: The mind/body/spirit complex known (as) Adolf is at this time in an healing process in the middle astral planes of your spherical force field. This entity was greatly confused and, although aware of the circumstance of change in vibratory level associated with the cessation of the chemical body complex, nevertheless, needed a great deal of care.

@@ -13,6 +13,7 @@ This occurred approximately five hundred thousand [500,000] of your years ago.
 
 **Ra:** I am Ra. This is a new line of questioning, and deserves a place of its own. The ones who were harvested to your sphere from the sphere known before its dissolution as other names, but to your peoples as Maldek, incarnated, many within your Earth’s surface rather than upon it. The population of your planet contains many various groups harvested from other second-dimension and cycled third-dimension spheres. You are not all one race or background of beginning. The experience you share is unique to this time/space continuum.
 
+11.3: The planetary social memory complex, Maldek, had in common with your own sphere the situation of a mixture of energy direction. Thus it, though unknown, would most probably have been a mixed harvest — a few moving to fourth density, a few moving towards fourth density in service to self, the great majority repeating third density. This is approximate due to the fact that parallel possibility/probability vortices cease when action occurs and new probability/possibility vortices are begun.
 # Destruction of Maldek
 10.1
 

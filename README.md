@@ -2,14 +2,14 @@
 - This repo is Working In Progress.
 - If links in this repo doesn't work, then the links are probably linking to another file in other repos
 - Put the *related repos* under the same folder and create a vault using Obsidian.
-- One shall read the repo and repos related with an eye of discernment 
+- One shall read the repo and repos related with an eye of [[discernment]] 
 # The Law of One
 *Please use text editor Obsidian or similar software for best reading experiences*
 
 [The Law of One by Ra - A Humble Messenger of The Law of One](https://www.lawofone.info/) 
 
-> ![Note]
-> One may find difficulty in reading the material of Law of One and other spiritual materials, as did I too experienced difficulty in understanding the Law of One when I first started reading it in Fall of 2020 and I only completed Book 1 of Law of One. I experience great pain and difficulty in merging the Law of One with other spiritual materials through 2020 to 2022. In 2023-2024, I again read through Book 1 to Book 4 to session 90+, but this time was able to learn and understand materials previously not understood. Now in this repo, it is my third time reading and am attempting to create more comprehensive understanding which I can track and expand upon.
+> [!NOTE]
+> One may find difficulty in reading the material of Law of One and other spiritual materials, as did I too experienced difficulty in understanding the Law of One when I first started reading it in Fall of 2020 and I only completed Book 1 of Law of One. I experience great pain and difficulty in merging the Law of One with other spiritual materials with my personal experience through 2020 to 2022. In 2023-2024, I again read through Book 1 to Book 4 to session 90+, but this time was able to learn and understand materials previously not understood. Now in this repo, it is my third time reading and am attempting to create more comprehensive understanding which I can track and expand upon.
 
 This repository is of an seeking/understanding of The Law of One by the entity Peter Yunpeng Zhang and an attempt to share this understanding to those who are also on the path and wants a different point of view.
 

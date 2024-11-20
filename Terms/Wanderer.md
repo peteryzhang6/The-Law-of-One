@@ -1,0 +1,2 @@
+# Wanderer
+11.29: Wanderers incarnated in several waves, as you may call them, in order to bring into existence the gradual freeing from the demands of the diurnal cycles and lack of freedom of leisure.

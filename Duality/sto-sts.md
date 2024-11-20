@@ -13,10 +13,24 @@ The STS needs STO when the providing source is in danger as STO is best known fo
 
 **7.14:** Consider, if you will, a simple example of intentions which are bad/good. This example is Adolf. This is your vibratory sound complex. The intention is to presumably unify by choosing the distortion complex called elite from a social memory complex and then enslaving, by various effects, those who are seen as the distortion of not-elite. There is then the concept of taking the social memory complex thus weeded and adding it to a distortion thought of by the so-called Orion group as an empire. The problem facing them is that they face a great deal of random energy released by the concept of separation. This causes them to be vulnerable as the distortions amongst their own members are not harmonized.
 
-Check [[Orion]].
+11.31: To serve the self is to serve all. The service of the self, when seen in this perspective, requires an ever-expanding use of the energies of others for manipulation to the benefit of the self with distortion towards power.
+- I feel that "power" in our current day society has more of a negative sense of use. Thus in equivalent to power is one of light in STO perspective.
+# Examples of STS
 
+>11.10: All of the entities (mentioned below) were aware, through memory, of Atlantean understandings having to do with the use of the various centers of mind/body/spirit complex energy influx in attaining the gateway to intelligent infinity.
+- [[Taras Bulba]]
+- [[Genghis Khan]]
+- [[Rasputin]]
+
+11.11: The first two entities mentioned made little use of these abilities consciously. However, they were bent single-mindedly upon service to self, sparing no efforts in personal discipline to double, re-double and so empower this gateway. The third was a conscious adept and also spared no effort in the pursuit of service to self.
+
+11.12: These entities are in the dimension known to you as fourth. Therefore the space/time continua are not compatible. An approximation of the space/time locus of each would net no actual understanding. Each chose a fourth-density planet which was dedicated to the pursuit of the understanding of the Law of One through service to self, one in what you know as the Orion group, one in what you know as Cassiopeia, one in what you know as Southern Cross; however, these loci are not satisfactory. We do not have vocabulary for the geometric calculations necessary for transfer of this understanding to you.
+
+Also Check [[Orion]] - STS Social Memory Complex
 # How should STO treat STS
 Like Ra said, with Love and Light.
+
+*Thoughts:*
 
 It is difficult to treat STSs with Love and Light as an initiate of STOs, but to understand and in knowing of that STS will eventually end in 6D and turn to 6D STO: for those (STSs) who use me to their own gain, I worry not. For I know the road they walk is one of dead ends, of death For I have travelled that path many times. So I help them and accelerate their journey that has an end. I shall help them to progress their journey and fast shall I accelerate their journey that within moments do they reach their destination. Oh how much do they celebrate at me surrendering at their power, but oh so foolishly do they believe that the road they walk is one to eternal life. I wait, wait till the day they reach their final destination. And it is called "final destination" for a reason, the "final" is the end of their road, of their life, of all their "achievements" they so dearly hold on to. It is nothing but an illusion, for they chose to walk the road of illusion and thus do they met the end of illusion - The Final, the Death, for Final Death is also an merely illusion that exists in the all wisdom and love of Infinity. And then do I see they turn and walk the path of truth, the one that I never left and neither did they. LOL #infinity #unity #foreverness
 - To walk the the path of "falseness" and return to the path of Truth is the display of the power of infinity intelligence to create a plane of existence where the distortion of "falseness" exists and allow the beings to experience such "falseness" through the veil of forgetting of one self's perfection and walk the journey to return to source or to eternity.

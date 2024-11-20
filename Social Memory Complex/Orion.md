@@ -4,6 +4,14 @@ Has [[UFO]] landings.
 8.12: Their purpose is conquest, unlike those of the Confederation who wait for the calling. The so-called Orion group calls itself to conquest.
 
 8.14: As we have said previously, their objective is to locate certain mind/body/spirit complexes which vibrate in resonance with their own vibrational complex, then to enslave the un-elite, as you may call those who are not of the Orion vibration.
+
+11.18: As all, they follow the Law of One observing free will. Contact is made with those who call. Those then upon the planetary sphere act much as do you to disseminate the attitudes and philosophy of their particular understanding of the Law of One which is service to self. These become the elite. Through these, the attempt begins to create a condition whereby the remainder of the planetary entities are enslaved by their own free will.
+
+11.21: The Orion group passes on information concerning the Law of One with the orientation of service to self. The information can become technical just as some in the Confederation, in attempts to aid this planet in service to others, have provided what you would call technical information. The technology provided by this group is in the form of various means of control or manipulation of others to serve the self.
+
+11.22: However, very positively, as you would call this distortion, oriented so-called scientists have received information intended to unlock peaceful means of progress which redounded unto the last echoes of potential destruction due to further reception of other scientists of a negative orientation/distortion.
+# Crusader
+11.16: The crusaders move in their chariots to conquer planetary mind/body/spirit social complexes before they reach the stage of achieving social memory.
 # Density of Orion
 **7.15**
 

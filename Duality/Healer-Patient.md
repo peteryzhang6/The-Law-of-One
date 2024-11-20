@@ -1,3 +1,9 @@
+---
+aliases:
+  - heal/hurt
+  - hurt/heal
+---
+
 # Healer and Patient
 
 # 4.9

@@ -42,7 +42,8 @@ Chants focusing on the Love and Compassion of [[4th Density]] consciousness
 # 5D
 Chants focusing on the Light and Wisdom of [[5th Density]] consciousness
 - [[ZIN-URU Mantra of Thoth the Atlantian.mp3]]
-	- I put this here because of Thoth mentioned "power is wisdom and wisdom is power" and he said use the word "ZIN-URU" to find power
+	- I put this here because of [[Thoth the Atlantean]] mentioned "power is wisdom and wisdom is power" and he said use the word "ZIN-URU" to find power.
+	- Because of [[STO-STS#Service to self (STS)|STS 11.31]] where Ra mentioned distortion towards power is one of STS, thus to avoid subconsciously turning towards the negative, one needs to remember the words of Thoth - "Yet must ye understand that man is of Light and Light is of man." And thus replacing "power" with "light" - "light is wisdom and wisdom is light".
 # 6D
 Chants focusing on the Oneness of [[6th Density]] consciousness
 - We Are One
