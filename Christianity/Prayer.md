@@ -2,7 +2,6 @@
 aliases:
   - the call
 ---
-
 # Prayer
 A form of consciously sending and receiving love/light to/from the One Infinite Creator
 

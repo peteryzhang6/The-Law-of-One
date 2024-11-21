@@ -4,7 +4,9 @@ aliases:
   - hurt/heal
 ---
 # Healer and Patient
-
+A primal distortion in Law of One.
+- 4.20: One of the primal distortions of the Law of One is that of healing.
+- 15.14: You have been given information upon healing, as you call this distortion.
 # 4.9
 **Questioner:** Is it possible for you to instruct healing techniques if we could make available these individuals that have the native ability?
 

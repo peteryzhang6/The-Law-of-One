@@ -7,9 +7,11 @@ aliases:
 # STO and STS
 14.18: the [[primal distortion]] of the Law of One, which is service
 # Service to Others (STO)
-The STO needs STS when the self is in danger as STS is best known for its ability to preserve the self.
+The STO will need STS when the self is in danger as STS is best known for its ability to preserve the self.
 
-**7.15**: However, service to others results in service to self, thus preserving and further harmonizing the distortions of those entities seeking intelligent infinity through these disciplines.
+7.15: However, service to others results in service to self, thus preserving and further harmonizing the distortions of those entities seeking intelligent infinity through these disciplines.
+
+15.7: **The greatest service that our population on this planet(Earth) can perform individually** - There is but one service. The Law is One. The offering of self to Creator is the greatest service, the unity, the fountainhead. The entity who seeks the One Creator is with infinite intelligence. From this seeking, from this offering, a great multiplicity of opportunities will evolve depending upon the mind/body/spirit complexes’ distortions with regard to the various illusory aspects or energy centers of the various complexes of your illusion. Thus, some become healers, some workers, some teachers, and so forth.
 # Service to self (STS)
 The STS needs STO when the providing source is in danger as STO is best known for its ability to preserve the outer source.
 

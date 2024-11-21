@@ -1,5 +1,10 @@
 # Earth
 13.22: (As of 1981) The sphere upon which you dwell is third density in its beingness of mind/body/spirit complexes. It is now in a space/time continuum, fourth density. This is causing a somewhat difficult harvest.
+# 3D Earth
+15.4: Rapid aging occurs upon this third-density planet due to an ongoing imbalance of receptor web complex in the etheric portion of the energy field of this planet. The thought-form distortions of your peoples have caused the energy streamings to enter the planetary magnetic atmosphere, if you would so term this web of energy patterns, in such a way that the proper streamings are not correctly imbued with balanced vibratory light/love from the, shall we say, cosmic level of this octave of existence.
+- 15.5: one of your (Ra) attempts in service to this planet was to help the population of this planet more fully understand and practice the Law of One so that this aging, rapid aging could be changed to normal aging
+- 15.6: If you will observe those oriented through a lifetime experiential distortion complex from near the beginning of that experience, you will observe a relatively youthful, as you would call it, appearance.
+- 15.8: A perfectly balanced entity would become tired rather than visibly aged. The lessons being learned, the entity would depart. However, this is appropriate and is a form of aging which your peoples do not experience. The understanding comes slowly, the body complex decomposing more rapidly.
 # 4D Earth
 13.23
 

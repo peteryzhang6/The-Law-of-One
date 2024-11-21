@@ -28,6 +28,8 @@ is an entity called student, who first study the knowledge from the outside then
 is an entity called teacher, who first teach the knowledge it knows then later learn from its mistake and reflect on the mistake for refinement and improvement.
 
 9.3: I am Ra. Again, to direct your judgment is an intrusion upon your space/time continuum distortion called future. To speak of past or present within our distortion/judgment limits is acceptable. To guide rather than teach/learn is not acceptable to our distortion in regards to teach/learning.
+
+15.13: It is important to allow each seeker to enlighten itself rather than for any messenger to attempt in language to teach/learn for the entity, thus being teach/learner and learn/teacher. This is not in balance with your third density. We learn from you. We teach to you. Thus, we teach/learn. If we learned for you, this would cause imbalance in the direction of the distortion of free will.
 # Accelerated Learning
 10.14
 

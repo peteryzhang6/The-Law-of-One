@@ -1,17 +1,19 @@
 # Primal Distortion
 These are last distortions to unite when a being raises from 6D to 7D or the first distortions created when a being raises from 7D to 1D of next octave, assuming the next octave have similar configuration to the current octave.
 
+15.21: The first distortion, free will, finds focus. This is the second distortion known to you as Logos, the Creative Principle or Love. This intelligent energy thus creates a distortion known as Light. From these three distortions come many, many hierarchies of distortions, each having its own paradoxes to be synthesized, no one being more important than another.
+
 - [[Law of Free Will]]
 - [[Finity]]
 - [[STO-STS|Service]]
 - [[Learn-Teach]]
 - [[Healer-Patient]]
-	- **4.20:** One of the primal distortions of the Law of One is that of healing.
 - I would also consider the 7 densities as primal distortion due to the mention of (9.10) Laws of Love
-	- 1D - Law of Being
-	- 2D - Law of Movement 
-	- 3D - Law of Choice (Together with 1D and 2D forms Law of Free Will)
-	- 4D - Law of Love and compassion
+	- 1D - Law of Being -> Distortion of Free Will
+	- 2D - Law of Movement -> Distortion of Love
+	- 3D - Law of Choice -> Distortion of Light
+	- Through the combination of the first three distortions, gives birth to many hierarchies of distortion in 4D to 7D
+	- 4D - Law of Love and Compassion
 	- 5D - Law of Light and wisdom
 	- 6D - Law of One
 		- The blending of Love and Light in 5D to 6D creates Learn-Teach

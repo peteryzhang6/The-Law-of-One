@@ -20,3 +20,4 @@ Each [[universe]], in turn, individualized to a focus becoming, in turn, co-Crea
 
 13.15: How the planetary system we are in now evolved - was it all created at once or was there first our sun created and this (inaudible) was created?
 - The process is from the larger, in your illusion, to the smaller. Thus the co-Creator, individualizing the galaxy, created energy patterns which then focused in multitudinous focuses of further conscious awareness of intelligent infinity. Thus, the solar system of which you experience inhabitation is of its own patterns, rhythms, and so-called natural laws which are unique to itself. However, the progression is from the galaxy spiraling energy to the solar spiraling energy, to the planetary spiraling energy, to the experiential circumstances of spiraling energy which begin the first density of awareness or consciousness of planetary entities.
+

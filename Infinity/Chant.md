@@ -6,6 +6,8 @@ aliases:
 Check [[Prayer]] on the purpose of chants.
 
 #TODO I categorized to my best ability of chants into its respective consciousness density. Will need to create instructions on how to create personalized chants if one so have the distortion towards that.
+
+15.14: We(Ra) can only encourage these lines of contemplation, always stating the prerequisite of meditation, contemplation, or prayer as a means of subjectively/objectively using or combining various understandings to enhance the seeking process. Without such a method of reversing the analytical process, one could not integrate into unity the many understandings gained in such seeking.
 # 1D
 Chants focused on the Beingness of [[1st Density]] consciousness
 - the blessing of air and water: (speak these words with an open heart)
