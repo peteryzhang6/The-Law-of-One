@@ -2,8 +2,10 @@
 aliases:
   - STO
   - STS
+  - service
 ---
 # STO and STS
+14.18: the [[primal distortion]] of the Law of One, which is service
 # Service to Others (STO)
 The STO needs STS when the self is in danger as STS is best known for its ability to preserve the self.
 

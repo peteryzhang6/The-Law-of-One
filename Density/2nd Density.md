@@ -21,11 +21,11 @@
 - Bigfoot
 	- 9.22 There are three types of Bigfoot, if you will accept that vibratory sound complex used for three such different races of mind/body/spirit complexes. The first two we have described. The third is a thought-form.
 
-
 13.21: The second density strives towards the third density which is the density of self-consciousness or self-awareness. The striving takes place through the higher second-density forms who are invested by third-density beings with an identity to the extent that they become self-aware mind/body complexes, thus becoming mind/body/spirit complexes and entering third density, the first density of consciousness of spirit.
-
-# 14.1
-Much as you would put on a vestment, so do your third-density beings invest or clothe some second-density beings with self-awareness. This is often done through the opportunity of what you call pets. It has also been done by various other means of investiture. These include many so-called religious practice complexes which personify and send love to various natural second-density beings in their group form.
+- 14.1: Much as you would put on a vestment, so do your third-density beings invest or clothe some second-density beings with self-awareness. This is often done through the opportunity of what you call pets. It has also been done by various other means of investiture. These include many so-called religious practice complexes which personify and send love to various natural second-density beings in their group form.
+- 14.2: There was not this type of investment as spoken but the simple third-density investment which is the line of spiraling light calling distortion upward from density to density. The process takes longer when there is no investment made by incarnate third-density beings.
+# Difference between 2D and 3D beings
+14.3: The difference between second- and third-density bodily forms would in many cases have been more like one to the other. In the case of your planetary sphere the process was interrupted by those who incarnated here from the planetary sphere you call Mars. They were adjusted by genetic changing and, therefore, there was some difference which was of a very noticeable variety rather than the gradual raising of the bipedal forms upon your second-density level to third-density level. This has nothing to do with the so-called placement of the soul. This has only to do with the circumstances of the influx of those from that culture.
 
 # 19.2
 There are three types of second-density entities which become, shall we say, enspirited. 

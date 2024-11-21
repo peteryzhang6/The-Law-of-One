@@ -1,7 +1,11 @@
+# The Great Pyramid of Giza
+14.6: There are six balancing pyramids and five two, fifty-two (52) others built for additional healing and initiatory work among your mind/body/spirit social complexes.
+- *balancing pyramids* - 14.7: Imagine, if you will, the many force fields of the Earth in their geometrically precise web. Energies stream into the Earth planes, as you would call them, from magnetically determined points. Due to growing thought-form distortions in understanding of the Law of One, the planet itself was seen to have the potential for imbalance. The balancing pyramidal structures were charged with crystals which drew the appropriate balance from the energy forces streaming into the various geometrical centers of electromagnetic energy which surround and shape the planetary sphere.
+- 14.10: The balancing pyramidal structures could be and were used for individual initiation. However, the use of these pyramids was also designed for the balancing of the planetary energy web. The other pyramids are not placed properly for Earth healing but for healing of mind/body/spirit complexes. It came to our attention that your density was distorted towards, what is called by our distortion/understanding of third density, a premature aging process. We were attempting to aid in giving the mind/body/spirit complexes of third density on your planetary sphere, more of a time/space continuum in one incarnation pattern in order to have a fuller opportunity to learn/teach the Laws or Ways of the primal distortion of the Law of One which is Love.
 # Idea on reviving The Great Pyramid of Giza
 **To note: this is only an assumption or theory, which means mistakes is presented. Before taking this plan out of paper into reality, it is best to further realize the theory into its full completeness.**
 
-#4/8 I am Ra. There are people, as you call them, who are able to take this calling at this nexus. However, we wish to point out once again that the time of the pyramids, as you would call it, is past. It is indeed a timeless structure. However, the streamings from the universe were, at the time we attempted to aid this planet, those which required a certain understanding of purity. This understanding has, as the streamings revolve and all things evolve, changed to a more enlightened view of purity. Thus, there are those among your people at this time whose purity is already one with intelligent infinity. Without the use of structures, healer/patient can gain healing.
+4.8: I am Ra. There are people, as you call them, who are able to take this calling at this nexus. However, we wish to point out once again that the time of the pyramids, as you would call it, is past. It is indeed a timeless structure. However, the streamings from the universe were, at the time we attempted to aid this planet, those which required a certain understanding of purity. This understanding has, as the streamings revolve and all things evolve, changed to a more enlightened view of purity. Thus, there are those among your people at this time whose purity is already one with intelligent infinity. Without the use of structures, healer/patient can gain healing.
 - I understand this as once people are in tune in 4D and understand the healing procedures, the function of the pyramid is unnecessary. But since the Pyramid of Giza is such a marvel of human civilization and so many people go visit it, and I somewhat feel as a duty/responsibility of us, we should revitalize the pyramid to its former glory. To use an metaphor, we go see an emperor or king, we don't want to see it in its worse shape and state, and the pyramid is in such a state of death, of destruction. Thus we dress the emperor and king, to honor the power and wisdom it holds, thus we reconstruct the pyramid, to "dress the naked emperor" into a form that is fitting for its statue.
 
 This is an idea of tuning The Great Pyramid back to its original tune 
@@ -9,8 +13,7 @@ This is an idea of tuning The Great Pyramid back to its original tune
 - or the original The Great Pyramid is constructed based on the tune of 3D Earth to elevate entities to 4D. Now Earth is already 4D, we need to retune the vibration of the pyramid to 4D 
 - we should start on tuning the body of the pyramid first
 - then tune the mind and spirit of the pyramid
-
-# Tuning of the body of the pyramid
+## Tuning of the body of the pyramid
 I think it is a good idea to start the de-desertification of the areas around the Great Pyramid as I believe the green of 2nd density can further help the tuning of the pyramid.
 
 I think we can also build sound walls for each the 7 circles to further let the sound converge into the pyramid. Once the pyramid is tuned, the walls can be removed.
@@ -20,7 +23,7 @@ And of course, the chimney or the capstone of the pyramid needs to be rebuild. T
 The surface of the pyramid should also be fixed.
 
 Once the physical body of the pyramid is fixed, then we can start tuning the mind and spirit of the pyramid. The mind and spirit is tuned by the full-hearted chant of "Yi" and "I" while have all consciousness focused on the pyramid, or the capstone(?).
-# Tuning of the mind and spirit of pyramid
+## Tuning of the mind and spirit of pyramid
 We will need a large amount of group of people to surround the Great Pyramid in circles. The number of people is that one of ratio of pyramid and of Earth.
 
 There should be 7 circles, each one represent a density from 1st to 7th.
@@ -70,8 +73,7 @@ We can also shine different colors of light during night to further speed up the
 To further reduce the work done during chanting and moving, I believe a detailed math and science calculation of vibration and frequency of the sound vibration of "Yi" and "I" can be done.
 - how loud should the chant be, and each should chant at this level of loudness or level of vibration
 - few points I can think of, but I believe those who are experts and adepts on sound vibration and its effects can come up with way more calculation and fixes
-
-# After tuning
+## After tuning
 If the tuning is successful, I would assume these things to happen:
 - the dormant pyramids across world should start to wake up
 - the flow of 4D energy will be accelerated 

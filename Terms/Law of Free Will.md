@@ -1,5 +1,5 @@
 # Law of Free Will
-Is one of the [[Primal Distortions]] of Law of One. 
+Is one of the [[Primal Distortion]] of Law of One. 
 
 Can be seen as a product or result of 1st - 3rd Density, of the beingness of, the movement of, and the conscious choice of the consciousness.
 

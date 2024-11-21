@@ -4,6 +4,9 @@
 4.20: The Law of One, though beyond the limitations of name, as you call vibratory sound complexes, may be approximated by stating that all things are one, that there is no polarity, no right or wrong, no disharmony, but only identity. All is one, and that one is love/light, light/love, the Infinite Creator.
 
 12.24: There are no mistakes under the Law of One.
+- 14.34: The Law is One. There are no mistakes.
+
+14.20: We (Ra) offer the Law of One, the solving of paradoxes, the balancing of love/light and light/love.
 
 [[Jesus Christ#John 14 6]]
 # Tuning to the Circle of One

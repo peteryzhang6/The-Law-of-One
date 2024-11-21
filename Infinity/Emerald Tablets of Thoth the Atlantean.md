@@ -136,7 +136,7 @@ Now before me opens the portal. Go I down in the darkness of night.
 ## EMERALD TABLET II
 **The Halls of Amenti**
 
-Deep in the Earth's heart lie the Halls of Amenti, far 'neath the islands of sunken Atlantis, Halls of the Dead and halls of the living, bathed in the fire of the infinite ALL. 
+Deep in the Earth's heart lie the [[Akashic Record|Halls of Amenti]], far 'neath the islands of sunken Atlantis, Halls of the Dead and halls of the living, bathed in the fire of the infinite ALL. 
 
 Far in a past time, lost in the space time, the Children of Light looked down on the world. See the children of men in their bondage, bound by the force that came from beyond. Knew they that only by freedom from bondage could man ever rise from the Earth to the Sun. Down they descended and created bodies, taking the semblance of men as their own. The masters of everything said after their forming: "We are they who were formed from the space-dust, partaking of life from the infinite ALL; living in the world as children of men, like and yet unlike the children of men." 
 

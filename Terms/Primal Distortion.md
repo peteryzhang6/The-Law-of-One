@@ -1,8 +1,9 @@
-# Primal Distortions
+# Primal Distortion
 These are last distortions to unite when a being raises from 6D to 7D or the first distortions created when a being raises from 7D to 1D of next octave, assuming the next octave have similar configuration to the current octave.
 
 - [[Law of Free Will]]
 - [[Finity]]
+- [[STO-STS|Service]]
 - [[Learn-Teach]]
 - [[Healer-Patient]]
 	- **4.20:** One of the primal distortions of the Law of One is that of healing.
