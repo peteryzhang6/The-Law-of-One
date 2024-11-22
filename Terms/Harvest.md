@@ -1,10 +1,6 @@
 # Harvest
 When a being reaches certain percentage of polarization, it is harvested or graduated to the next appropriate density.
 
-A STS will need to achieve a 95% or more polarization towards the self.
-
-A STO will need to achieve a 50% or more polarization toward others.
-
 Because 3rd density is one of choice, thus the polarization of 1D and 2D towards STO and STS is not of conscious but of the subconscious. Then in 3D, the polarization towards STO or STS becomes clear, then the initial inner working of the conscious mind is to first control the "beast", or primal distortions birthed in 1D and 2D.
 
 Check [[STO-STS]] and [[Polarization]]
@@ -25,3 +21,14 @@ Check [[STO-STS]] and [[Polarization]]
 16.11: Those able to enter fourth density through vibrational complex levels may choose the manner of their further seeking of the One Creator.
 
 16.12: Then as we enter the fourth density there will be a split, shall we say, and part of the individuals who go into the fourth density will go to planets or places where there is service to others and the other part will go into places where there is service to self.
+
+17.15: People of this planet, following any religion or no religion at all, or having no intellectual knowledge of the Law of One or of anything at all, can still be harvested into the fourth density if they are of that vibration.
+- However, you will find few who are harvestable whose radiance does not cause others to be aware of their, what you may call, spirituality, the quality of the mind/body/spirit complex distortion. Thus, it is not particularly probable that an entity would be completely unknown to his immediate acquaintances as an unusually radiant personality, even were this individual not caught up in any of the distortions of your so-called religious systems.
+
+17.25: It is the right/privilege/duty of those opening consciously the gate to intelligent infinity to choose the manner of their leaving of the density. Those of negative orientation who so achieve this right/duty most often choose to move forward in their learn/teaching of service to self.
+
+17.29: Am I to understand that the harvest will occur in the year 2011, or will it be spread?
+- This is an approximation. We have stated we have difficulty with your time/space. This is an appropriate probable/possible time/space nexus for harvest. Those who are not in incarnation at this time will be included in the harvest.
+
+17.34: Well, then if an entity is harvested into fourth density with a grade, let’s say, of fifty-one percent for others, forty-nine percent for self, what level of the fourth density would he go into? I’m assuming there are different levels of the fourth density.
+- This is correct. Each enters the sub-density which vibrates in accordance with the entity’s understanding.

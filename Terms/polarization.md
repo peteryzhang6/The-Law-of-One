@@ -3,6 +3,24 @@ Polarization can be divided into 2 categories:
 - negative polarity - service to self (STS)
 - positive polarity - service to other (STO)
 - Please check [STO-STS](STO-STS.md)
+# Polarization for [[Harvest]]
+A STS will need to achieve a 95% or more polarization towards the self.
+- A grade of at most 5 towards service to others
+- or A grade of at least 95 towards service to self
+
+A STO will need to achieve a 50% or more polarization toward others.
+- A grade of at least 50 towards service to others
+- Or a grade of at most towards service to self
+
+17.31: In the book *[[Oahspe]]* it states that if an individual is more than fifty percent for others— that is, goes over the 50% service to others, and is less than fifty percent for service to self, then he is harvestable.
+- Correct if the harvesting is to be for the positive fourth dimensional level
+
+17.32: The entity who wishes to pursue the path of service to self must attain a grade of five, that is five percent service to others, ninety-five percent service to self. It must approach totality. The negative path is quite difficult to attain harvestability upon and requires great dedication.
+
+17.33: Why is the negative path so much more difficult a path to attain harvestability upon than the positive?
+- This is due to a distortion of the Law of One which indicates that the gateway to intelligent infinity be a gateway at the end of a strait and narrow path as you may call it. To attain fifty-one percent dedication to the welfare of other-selves is as difficult as attaining a grade of five percent dedication to other-selves. The, shall we say, sinkhole of indifference is between those two.
+
+---
 
 For each polarity, the maximum potential can be achieved is 99%.
 - for STS, the 1% left or outside of the self is to provide energy for the self to take

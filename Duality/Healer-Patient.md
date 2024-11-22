@@ -27,6 +27,15 @@ We also ask your imagination to conceive of those who have chosen the distortion
 4.9: At first the ability of healing maybe hidden to the entity. In order to awaken or activate the ability to heal, one will need to "chosen the distortion of service and have removed one's mind/body/spirit complexes from one dimension to another, thus bringing with them in sometimes totally latent form many skills and understandings which more closely match the distortions of the healing/patient processes."
 - The act of choosing the distortion of service is one of [[STO-STS|STO]]
 - The act of removing oneself from one dimension to another can be seen in the previous paragraph about the example of of an entity's attempt to heal others. It first must remove itself from the current dimension of worry and step into a new dimension where the healing/patient process is possible.
+
+17.18:
+Those who heal may be of any density which has the consciousness of the spirit. This includes third, fourth, fifth, sixth, and seventh. The third density can be one in which healing takes place just as the others. However, there is more illusory material to understand, to balance, to accept, and to move forward from.  
+  
+The gate to [[intelligent infinity]] can only be opened when an understanding of the instreamings of intelligent energy are opened unto the healer. These are the so-called Natural Laws of your local space/time continuum and its web of electromagnetic sources or nexi of instreaming energy.  
+  
+Know then, first, the mind and the body. Then as the spirit is integrated and synthesized, those are harmonized into a mind/body/spirit complex which can move among the dimensions and which can open the gateway to intelligent infinity, thus healing self by light and sharing that light with others.  
+  
+True healing is simply the radiance of the self causing an environment in which a catalyst may occur which initiates the recognition of self, by self, of the self-healing properties of the self.
 # 4-13
 **Questioner:** I’m assuming, then, that the selected individual (who has the potential to heal) would necessarily be one who was very much in harmony with the Law of One. Though he may not have any intellectual understanding of it, he should be living the Law of One. Is this correct?
 

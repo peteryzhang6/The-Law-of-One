@@ -15,6 +15,10 @@ The STO will need STS when the self is in danger as STS is best known for its ab
 7.15: However, service to others results in service to self, thus preserving and further harmonizing the distortions of those entities seeking intelligent infinity through these disciplines.
 
 15.7: **The greatest service that our population on this planet(Earth) can perform individually** - There is but one service. The Law is One. The offering of self to Creator is the greatest service, the unity, the fountainhead. The entity who seeks the One Creator is with infinite intelligence. From this seeking, from this offering, a great multiplicity of opportunities will evolve depending upon the mind/body/spirit complexes’ distortions with regard to the various illusory aspects or energy centers of the various complexes of your illusion. Thus, some become healers, some workers, some teachers, and so forth.
+
+17.30: are there best ways of being of service to others?
+- The best way of service to others is the constant attempt to seek to share the love of the Creator as it is known to the inner self. This involves self knowledge and the ability to open the self to the other-self without hesitation. This involves, shall we say, radiating that which is the essence or the heart of the mind/body/spirit complex.  
+- Speaking to the intention of your question, the best way for each seeker in third density to be of service to others is unique to that mind/body/spirit complex. This means that the mind/body/spirit complex must then seek within itself the intelligence of its own [[discernment]] as to the way it may best serve other-selves. This will be different for each. There is no best. There is no generalization. Nothing is known.
 # Service to self (STS)
 The STS needs STO when the providing source is in danger as STO is best known for its ability to preserve the outer source.
 

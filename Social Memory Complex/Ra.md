@@ -6,6 +6,8 @@
 
 14.19: I am sixth density with a strong seeking towards seventh density. The [[harvest]] for us will be in only approximately two and one-half million of your years and it is our desire to be ready for harvest as it approaches in our space/time continuum.
 - 14.21-22: One of our cycles computes to seven five million (75,000,000) of your years.
+
+17.13: You speak with Ra. There is no separation. You would call it a social memory complex thus indicating many-ness. To our understanding, you are speaking to an individualized portion of consciousness.
 # Why Ra service us
 14.18: I speak for the social memory complex termed Ra. We came among you to aid you. Our efforts in service were perverted. Our desire then is to eliminate as far as possible the distortions caused by those misreading our information and guidance. The general cause of service such as the Confederation offers is that of the primal distortion of the Law of One, which is [[STO-STS|service]]. [[The Infinite Creator|The One Being]] of the creation is like unto a body, if you will accept this third-density analogy. Would we ignore a pain in the leg? A bruise upon the skin? A cut which is festering? No. There is no ignoring a call. We, the entities of sorrow, choose as our service the attempt to heal the sorrow which we are calling analogous to the pains of a physical body complex distortion.
 # Channeling Ra

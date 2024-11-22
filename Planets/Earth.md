@@ -5,12 +5,24 @@
 - 15.5: one of your (Ra) attempts in service to this planet was to help the population of this planet more fully understand and practice the Law of One so that this aging, rapid aging could be changed to normal aging
 - 15.6: If you will observe those oriented through a lifetime experiential distortion complex from near the beginning of that experience, you will observe a relatively youthful, as you would call it, appearance.
 - 15.8: A perfectly balanced entity would become tired rather than visibly aged. The lessons being learned, the entity would depart. However, this is appropriate and is a form of aging which your peoples do not experience. The understanding comes slowly, the body complex decomposing more rapidly.
-# 4D Earth
-13.23
 
-The fourth density is, as we have said, as regularized in its approach as the striking of a clock upon the hour. The space/time of your solar system has enabled this planetary sphere to spiral into space/time of a different vibrational configuration. This causes the planetary sphere to be able to be molded by these new distortions. However, the thought-forms of your people during this transition period are such that the mind/body/spirit complexes of both individual and societies are scattered throughout the spectrum instead of becoming able to grasp the needle, shall we say, and point the compass in one direction.  
-  
-Thus, the entry into the vibration of love, sometimes called by your people the vibration of understanding, is not effective with the present societal complex. Thus, the harvest shall be such that many will repeat the third-density cycle. The energies of your Wanderers, your teachers, and your adepts at this time are all bent upon increasing the harvest. However, there are few to harvest.
+17.24: The great majority of your peoples will repeat third density.
+
+17.41: At this time, near the end of the cycle, how are reincarnations into the physical allocated, shall I say, on this planet? In our own (inaudible).
+- Entities wishing to obtain critically needed experience in order to become harvestable are incarnated with priority over those who will, without too much probable/possible doubt, need to re-experience this density.
+
+17.42: How long has this been going on, this type of allocation?
+- This has been going on since the first individual entity became conscious of its need to learn the lessons of this density. This was the beginning of what you may call a seniority by vibration.
+
+17.43: Can you explain what you mean by a seniority by vibration?
+- The seniority by vibration is the preferential treatment, shall we say, which follows the ways of the Law of One which encourages harvestable individuals, each individual becoming aware of the time of harvest and the need on a self-level to bend mind, body, and spirit towards the learn/teaching of these lessons, is given priority in order that this entity may have the best possible chance, shall we say, of succeeding in this attempt.
+# 4D Earth
+13.23:
+- The fourth density is, as we have said, as regularized in its approach as the striking of a clock upon the hour. The space/time of your solar system has enabled this planetary sphere to spiral into space/time of a different vibrational configuration. This causes the planetary sphere to be able to be molded by these new distortions. However, the thought-forms of your people during this transition period are such that the mind/body/spirit complexes of both individual and societies are scattered throughout the spectrum instead of becoming able to grasp the needle, shall we say, and point the compass in one direction.  
+- Thus, the entry into the vibration of love, sometimes called by your people the vibration of understanding, is not effective with the present societal complex. Thus, the harvest shall be such that many will repeat the third-density cycle. The energies of your Wanderers, your teachers, and your adepts at this time are all bent upon increasing the harvest. However, there are few to harvest.
+
+17.23: Can you tell me why the Earth will be fourth-density positive instead of fourth-density negative after the cycle is complete since it seems that there is a greater negative population?
+- The Earth seems to be negative. That is due to the quiet, shall we say, horror which is the common distortion which those good or positively oriented entities have towards the occurrences which are of your space/time present. However, those oriented and harvestable in the ways of service to others greatly outnumber those whose orientation towards service to self has become that of harvestable quality.
 # Quarantine of Earth
 12.3: Every effort is made to quarantine this planet. However, the network of guardians, much like any other pattern of patrols on whatever level, does not hinder each and every entity from penetrating quarantine, for if request is made in light/love, the Law of One will be met with acquiescence. If the request is not made, due to the slipping through the net, then there is penetration of this net.
 
