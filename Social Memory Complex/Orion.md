@@ -1,3 +1,7 @@
+---
+aliases:
+  - Crusaders
+---
 # Orion
 Has [[UFO]] landings.
 # Purpose
@@ -10,6 +14,14 @@ Has [[UFO]] landings.
 11.21: The Orion group passes on information concerning the Law of One with the orientation of service to self. The information can become technical just as some in the Confederation, in attempts to aid this planet in service to others, have provided what you would call technical information. The technology provided by this group is in the form of various means of control or manipulation of others to serve the self.
 
 11.22: However, very positively, as you would call this distortion, oriented so-called scientists have received information intended to unlock peaceful means of progress which redounded unto the last echoes of potential destruction due to further reception of other scientists of a negative orientation/distortion.
+
+16.13: Approximately four five thousand (45,000) years ago an attempt was made. It was not successful. Approximately two six oh oh, two thousand six hundred (3,600), years ago the group sent an entity of social memory complex to this planetary sphere. This effort met with some success but was in the space/time continuum lessened in impact. Since approximately two three oh oh, two thousand three hundred (3,300), years ago in your measurement this group has constantly been working upon the harvest just as the Confederation.
+- This entity sent by Orion is named by your peoples, [[Yahweh]].
+
+16.17: The purpose of the Orion group, as mentioned before, is conquest and enslavement. This is done by finding and establishing an elite and causing others to serve the elite through various devices such as the laws you mention and others given by this entity.
+
+16.57: The Orion group uses daydreams of hostile or other negative vibratory natures to feed back or strengthen these thought-forms.
+- also 16.55, 16.56
 # Crusader
 11.16: The crusaders move in their chariots to conquer planetary mind/body/spirit social complexes before they reach the stage of achieving social memory.
 
@@ -40,3 +52,5 @@ You will recall that we went into some detail as to how those not oriented towar
 - *The beings are harvested because they can see and enjoy the light/love of the appropriate density.* 
 
 This study is as difficult as the one which we have described to you, but there are those with the perseverance to pursue the study just as you desire to pursue the difficult path of seeking to know in order to serve. The distortion lies in the fact that those who seek to serve the self are seen by the Law of One as precisely the same as those who seek to serve others, for are all not one? To serve yourself and to serve other is a dual method of saying the same thing, if you can understand the essence of the Law of One.
+
+16.9: Orion working behind the scene vs Orion landing to publicize their existence - The first instance is, in the long run, shall we put it, more salubrious for the Orion group in that it does not infringe upon the Law of One by landing and, thus, does its work through those of this planet. In the second circumstance, a mass landing would create a loss of polarization due to the infringement upon the free will of the planet. However, it would be a gamble. If the planet then were conquered and became part of the Empire, the free will would then be re-established. This is restrained in action due to the desire of the Orion group to progress towards the One Creator. This desire to progress inhibits the group from breaking the Law of Confusion.

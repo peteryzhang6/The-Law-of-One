@@ -3,6 +3,9 @@
 
 13.21: Density of self-consciousness or self-awareness. ... The first density of consciousness of spirit.
 
+16.39: It is absolutely necessary that an entity consciously realize it does not understand in order for it to be harvestable. Understanding is not of this density.
+- 16.40: it was not necessary for an entity to be consciously aware of the Law of One to go from third to fourth density
+
 76.15 The 3rd density is a choice 
 
 76.16 The prelude to choice must encompass the laying of the foundation, the establishment of the illusion and the viability of that which can be made spiritually viable. The remainder of the densities is continuous refining of the choice. This also is greatly lengthened, as you would use the term. The choice is, as you put it, the work of a moment but is the axis upon which the creation turns.

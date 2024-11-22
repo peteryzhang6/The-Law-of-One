@@ -12,3 +12,11 @@ aliases:
 12.28: Few there are of fourth density. The largest number of Wanderers, as you call them, are of the sixth density. The desire to serve must be distorted towards a great deal of purity of mind and what you may call foolhardiness or bravery, depending upon your distortion complex judgment. The challenge/danger of the Wanderer is that it will forget its mission, become karmically involved, and thus be swept into the maelstrom from which it had incarnated to aid the destruction.
 
 12.30: Due to the extreme variance between the vibratory distortions of third density and those of the more dense densities, if you will, Wanderers have as a general rule some form of handicap, difficulty, or feeling of alienation which is severe. The most common of these difficulties are alienation, the reaction against the planetary vibration by personality disorders, as you would call them, and body complex ailments indicating difficulty in adjustment to the planetary vibrations such as allergies, as you would call them.
+
+16.59:
+As we have said before, Wanderers become completely the creature of third density in mind/body complex. There is just as much chance of such influence to a Wanderer entity as to a mind/body/spirit complex of this planetary sphere. The only difference occurs in the spirit complex which, if it wishes, has an armor of light, if you will, which enables it to recognize more clearly that which is not as it would appropriately be desired by the mind/body/spirit complex. This is not more than a bias and cannot be called an understanding.  
+  
+Furthermore, the Wanderer is, in its own mind/body/spirit complex, less distorted towards the, shall we say, deviousness of third-density positive/negative confusions. Thus, it often does not recognize as easily as a more negative individual the negative nature of thoughts or beings.
+
+16.60 High-priority targets for [[Orion]] group
+- 16.61: If the Wanderer entity demonstrated through action a negative orientation towards other-selves it would be as we have said before, caught into the planetary vibration and, when harvested, possibly repeat again the master cycle of third density as a planetary entity.

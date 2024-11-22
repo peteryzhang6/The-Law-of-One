@@ -21,3 +21,7 @@ Check [[STO-STS]] and [[Polarization]]
 - 15.20: Is there any [[Wanderer]]s with these Elder Race? - These are planetary entities harvested — Wanderers only in the sense that they chose, in fourth-density love, to immediately reincarnate in third density rather than proceeding towards fourth density. This causes them to be Wanderers of a type, Wanderers who have never left the Earth plane because of their free will rather than because of their vibrational level.
 
 14.17: There were harvestable entities who shall choose the manner of their entrance into [[4th Density|fourth dimension]].
+
+16.11: Those able to enter fourth density through vibrational complex levels may choose the manner of their further seeking of the One Creator.
+
+16.12: Then as we enter the fourth density there will be a split, shall we say, and part of the individuals who go into the fourth density will go to planets or places where there is service to others and the other part will go into places where there is service to self.

@@ -69,6 +69,6 @@ In this form we decided to come among your peoples. Your peoples at that time we
 **Questioner:** Does the fact that we are in this transition period now have anything to do with the reason that you have made your information available to the population?
 
 **Ra:** I am Ra. We have walked among your people. We remember. We remember sorrow. We have seen much. We have searched for an instrument of the proper parameters of distortion in mind/body/spirit complex and supporting and understanding group of mind/body/spirit complexes to accept this information with minimal distortion and maximal desire to serve for some of your years. The answer, in short, is yes. However, we wished you to know that in our memory we thank you.
-- *We remember sorrow* - my first dream
+- *We remember sorrow* - like my [[first dream]]
 # Help Ra can offer
 7.2: As we just repeated through this instrument, we must integrate all of the portions of your social memory complex in its illusory disintegration form. Then the product of this can be seen as the limit of our ability to serve. We are fortunate that the Law of Service squares the desires of those who call. Otherwise, we would have no beingness in this time/space at this present continuum of the illusion. In short, you are basically correct. The thought of not being able is not a part of our basic thought-form complex towards your peoples but rather is a maximal consideration of what is possible.

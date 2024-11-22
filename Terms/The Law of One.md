@@ -8,6 +8,9 @@
 
 14.20: We (Ra) offer the Law of One, the solving of paradoxes, the balancing of love/light and light/love.
 
+16.38: And then the Law of One is truly universal in creating the progression toward the eighth density or octave in all galaxies.
+- There are infinite forms, infinite understandings, but the progression is one.
+
 [[Jesus Christ#John 14 6]]
 # Tuning to the Circle of One
 2.6: The vibrations may well be purified by a simple turning to the circle of One and the verbal vibration while doing so of the following dialogue:  

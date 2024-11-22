@@ -6,6 +6,9 @@ aliases:
 ---
 # STO and STS
 14.18: the [[primal distortion]] of the Law of One, which is service
+
+16.30: We(Ra) may say only that the negatively or self-service oriented planetary spheres are much fewer. 
+- 16.31: In a positively oriented society with service to others, it would be simple to move a large boulder by getting everyone to help move it. In a society oriented towards service to self, it would be much more difficult to get everyone to work on the boulder for the good of all; therefore, it is much easier to get things done to create the service-to-other principle and to grow in positively oriented communities than it is in negative.
 # Service to Others (STO)
 The STO will need STS when the self is in danger as STS is best known for its ability to preserve the self.
 
