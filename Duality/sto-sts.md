@@ -9,6 +9,11 @@ aliases:
 
 16.30: We(Ra) may say only that the negatively or self-service oriented planetary spheres are much fewer. 
 - 16.31: In a positively oriented society with service to others, it would be simple to move a large boulder by getting everyone to help move it. In a society oriented towards service to self, it would be much more difficult to get everyone to work on the boulder for the good of all; therefore, it is much easier to get things done to create the service-to-other principle and to grow in positively oriented communities than it is in negative.
+
+19.13: The quickest way to learn is to deal with other-selves. This is a much greater catalyst than dealing with the self. Dealing with the self without other-selves is akin to living without what you would call mirrors. Thus, the self cannot see the fruits of its beingness. Thus, each may aid each by reflection.
+# Bias toward which path
+19.17: We can speak only in metaphor. Some love the light. Some love the darkness. It is a matter of the unique and infinitely various Creator choosing and playing among its experiences as a child upon a picnic. Some enjoy the picnic and find the sun beautiful, the food delicious, the games refreshing, and glow with the joy of creation. Some find the night delicious, their picnic being pain, difficulty, sufferings of others, and the examination of the perversities of nature. These enjoy a different picnic.
+- All these experiences are available. It is free will of each entity which chooses the form of play, the form of pleasure.
 # Service to Others (STO)
 The STO will need STS when the self is in danger as STS is best known for its ability to preserve the self.
 

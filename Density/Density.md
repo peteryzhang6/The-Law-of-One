@@ -28,6 +28,9 @@
 # 7.16 Density Progression
 The progress through densities is sequential. A fifth-density social memory complex would be comprised of mind/body/spirit complexes harvested from fourth density. Then the conglomerate or mass mind/body/spirit complex does its melding and the results are due to the infinitely various possibilities of combination of distortions.
 
+19.1: Do all entities make a transition from second to third density, or are there some other entities who have never gone through this transition?
+- I am Ra. Your question presumes the space/time continuum understandings of the intelligent energy which animates your illusion. Within the context of this illusion we may say that there are some which do not transfer from one particular density to another, for the continuum is finite.
+- In the understanding which we have of the universe or creation as one infinite being, its heart beating as alive in its own intelligent energy, it merely is one beat of the heart of this intelligence from creation to creation. In this context each and every entity of consciousness has/is/will experienced/experiencing/experience each and every density.
 # Timing of Density
 9.4
 

@@ -49,4 +49,10 @@ Thus Ra states that the path of STS will come to an end because the gravity of o
 
 Thus Ra states that the path of STO will be one of that infinite as one refines its understanding on unity and infinity, the 1% or how many percent within oneself to take from others will become more efficient at giving. 
 
+---
+
 11.20: There are two main ways, just as there are two main ways of, shall we say, polarizing towards service to others. There are those mind/body/spirit complexes upon your plane who do exercises and perform disciplines in order to seek contact with sources of information and power leading to the opening of the gate to intelligent infinity. There are others whose vibratory complex is such that this gateway is opened and contact with total service to self with its primal distortion of manipulation of others is then afforded with little or no difficulty, no training, and no control.
+
+19.18: The further an entity has, what you would call, polarized, the more easily this entity may change polarity, for the more power and awareness the entity will have.  
+- Those truly helpless are those who have not consciously chosen but who repeat patterns without knowledge of the repetition or the meaning of the pattern.
+- 19.19: It then seems that there is an extreme potential in this polarization the same as there is in— to make an analogy, using electricity: We have a positive and negative pole. The more you build the charge on either of these, the greater the potential difference and the greater the ability to do work, as we call it, in the physical.

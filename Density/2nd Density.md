@@ -4,6 +4,13 @@
 13.18: Picture, if you will, the difference between first-vibrational mineral or water life and the lower second-density beings which begin to move about within and upon its being. This movement is the characteristic of second density, the striving towards light and growth. 
 
 13.19: A very simplistic example of second-density growth striving towards light is that of the leaf striving towards the source of light.
+
+19.14: Then we have second-density beings who have primarily motivation towards service to self and possibly a little bit of service to others with respect to their immediate families going into third density and carrying this bias with them but being in a position now where this bias will slowly be modified to one which is aimed toward a social complex and then ultimately toward union with the all.
+
+19.15: Then the newest third-density beings who’ve just made the transition from second are still strongly biased towards self-service. There must be many other mechanisms to create an awareness of the possibility of service to others. I’m wondering about the mechanism and I am wondering when the split takes place where the entity is able to continue on the road towards service to self that will eventually take him to fourth or fifth density. I would assume that an entity can continue— can start, say, in second density with service totally to self and continue right on through and just stay on what we would call the path of service to self and never ever be pulled over. Is this correct?
+- I am Ra. This is incorrect. The second-density concept of serving self includes the serving of those associated with tribe or pack. This is not seen in second density as separation of self and other-self. All is seen as self since in some forms of second-density entities, if the tribe or pack becomes weakened, so does the entity within the tribe or pack.
+- The new or initial third-density entity has this innocent, shall we say, bias or distortion towards viewing those in the family, the society, as you would call, perhaps, country, as self. Thus though a distortion not helpful for progress in third density, it is without polarity.
+- **The break becomes apparent when the entity perceives other-selves as other-selves and consciously determines to manipulate other-selves for the benefit of the self. This is the beginning of the road of which you speak.**
 # Entities
 9.14: The second density is the density of the higher plant life and animal life which exists without the upward drive towards the infinite. These second-density beings are of an octave of consciousness just as you find various orientations of consciousness among the conscious entities of your vibration.
 
@@ -24,11 +31,20 @@
 13.21: The second density strives towards the third density which is the density of self-consciousness or self-awareness. The striving takes place through the higher second-density forms who are invested by third-density beings with an identity to the extent that they become self-aware mind/body complexes, thus becoming mind/body/spirit complexes and entering third density, the first density of consciousness of spirit.
 - 14.1: Much as you would put on a vestment, so do your third-density beings invest or clothe some second-density beings with self-awareness. This is often done through the opportunity of what you call pets. It has also been done by various other means of investiture. These include many so-called religious practice complexes which personify and send love to various natural second-density beings in their group form.
 - 14.2: There was not this type of investment as spoken but the simple third-density investment which is the line of spiraling light calling distortion upward from density to density. The process takes longer when there is no investment made by incarnate third-density beings.
-# Difference between 2D and 3D beings
-14.3: The difference between second- and third-density bodily forms would in many cases have been more like one to the other. In the case of your planetary sphere the process was interrupted by those who incarnated here from the planetary sphere you call Mars. They were adjusted by genetic changing and, therefore, there was some difference which was of a very noticeable variety rather than the gradual raising of the bipedal forms upon your second-density level to third-density level. This has nothing to do with the so-called placement of the soul. This has only to do with the circumstances of the influx of those from that culture.
 
-# 19.2
-There are three types of second-density entities which become, shall we say, enspirited. 
+19.2: There are three types of second-density entities which become, shall we say, enspirited. 
 - The first is the animal. This is the most predominant. 
 - The second is the vegetable, most especially that which you call sound vibration complex “tree.” These entities are capable of giving and receiving enough love to become individualized. 
 - The third category is mineral. Occasionally a certain location, place as you may call it, becomes energized to individuality through the love it receives and gives in relationship to a third-density entity which is in relationship to it. This is the least common transition.
+
+19.3: 
+- Entities do not become enspirited. They become aware of the intelligent energy within each portion, cell, or atom, as you may call it, of its beingness.
+- This awareness is that which is awareness of that already given. From the infinite come all densities. The self-awareness comes from within given the catalyst of certain experiences understanding, as we may call this particular energy, the upward spiraling of the cell or atom or consciousness. 
+- You may then see that there is an inevitable pull towards the, what you may call, eventual realization of self.
+# Difference between 2D and 3D beings
+14.3: The difference between second- and third-density bodily forms would in many cases have been more like one to the other. In the case of your planetary sphere the process was interrupted by those who incarnated here from the planetary sphere you call Mars. They were adjusted by genetic changing and, therefore, there was some difference which was of a very noticeable variety rather than the gradual raising of the bipedal forms upon your second-density level to third-density level. This has nothing to do with the so-called placement of the soul. This has only to do with the circumstances of the influx of those from that culture.
+
+19.9: Where did the second-density beings get physical vehicles of third-density type to incarnate into?
+- There were among those upon this second-density plane those forms which when exposed to third-density vibrations became the third-density, as you would call sound vibration “human,” entities. 
+- That is, there was loss of the body hair, as you call it, the clothing of the body to protect it, the changing of the structure of the neck, jaw, and forehead in order to allow the easier vocalization, and the larger cranial development characteristic of third-density needs. This was a normal transfiguration.
+- 19.10: within a generation and one-half, as you know these things. Those who had been harvested of this planet were able to use the newly created physical complex of chemical elements suitable for third-density lessons.
