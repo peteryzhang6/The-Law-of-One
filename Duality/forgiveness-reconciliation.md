@@ -1,3 +1,6 @@
+# Forgiveness and Reconciliation
+**慈悲-和解**
+
 Forgiveness is the manifestation of inner to outer force while reconciliation is the manifestation of outer to inner force.
 
 - using an example of a good person vs a bad person 
@@ -9,3 +12,8 @@ Forgiveness is the manifestation of inner to outer force while reconciliation is
 	- the good person becomes bad when it continues its good doing when it keeps in reconcile/forgiveness 
 	- a delicate balance and one arduous road one walks yet within is the eternal
 - the same with 慈悲/包容
+
+17.20: In [[Forgiveness-Reconciliation|forgiveness]] lies the stoppage of the wheel of action, or what you call [[karma]].
+- [[Jesus Christ#Luke 11 2-4]]
+
+18.12: Forgiveness of other-self is forgiveness of self. An understanding of this insists upon full forgiveness upon the conscious level of self and other-self, for they are one. A full forgiveness is thus impossible without the inclusion of self.

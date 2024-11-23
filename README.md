@@ -31,6 +31,7 @@ The repo currently contains files I created previously in other locations, thus 
 	- I keep this repo private for the reason of it involves people that I met in my life time and I would need their approvals for making my interactions and thoughts with them public
 - [The Law of One](https://github.com/peteryzhang6/The-Law-of-One)
 	- The understanding of this repo came from connecting experiences within Peter Yunpeng Zhang repo, but I think it is somewhat unnecessary to release that repo as one can use the understanding from this repo to work on their own life experiences and arrive at the same understanding
+		- Please check [[Mind-Body-Spirit Complex]]
 	- This repo is large can be seen as the healing of the mind in [[LOO Healing]]. To see the Creator that lies in the mind of self and other selves.
 - [Jar of Water of Life](https://github.com/peteryzhang6/Jar-of-Water-of-Life)
 	- An experiment born out of the understanding of Oneness
