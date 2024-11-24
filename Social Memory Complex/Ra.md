@@ -8,6 +8,10 @@
 - 14.21-22: One of our cycles computes to seven five million (75,000,000) of your years.
 
 17.13: You speak with Ra. There is no separation. You would call it a social memory complex thus indicating many-ness. To our understanding, you are speaking to an individualized portion of consciousness.
+
+23.10: We ask you to remember that we are of the Brothers and Sisters of Sorrow. When one has been rescued from that sorrow to a vision of the One Creator, then there is no concept of failure.
+- Our difficulty lay in the honor/responsibility of correcting the distortions of the Law of One which occurred during our attempts to aid these entities. The distortions are seen as responsibilities rather than failures; the few who were inspired to seek, our only reason for the attempt.
+- Thus, we would perhaps be in the position of paradox in that as one saw an illumination, we were what you call successful, and as others became more sorrowful and confused, we were failures. These are your terms. We persist in seeking to serve.
 # Why Ra service us
 14.18: I speak for the social memory complex termed Ra. We came among you to aid you. Our efforts in service were perverted. Our desire then is to eliminate as far as possible the distortions caused by those misreading our information and guidance. The general cause of service such as the Confederation offers is that of the primal distortion of the Law of One, which is [[STO-STS|service]]. [[The Infinite Creator|The One Being]] of the creation is like unto a body, if you will accept this third-density analogy. Would we ignore a pain in the leg? A bruise upon the skin? A cut which is festering? No. There is no ignoring a call. We, the entities of sorrow, choose as our service the attempt to heal the sorrow which we are calling analogous to the pains of a physical body complex distortion.
 

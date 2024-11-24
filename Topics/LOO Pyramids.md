@@ -7,7 +7,7 @@
 - There are multiple pyramids across the Earth's surface and Giza is the only one that is currently showing or has not been destroyed
 
 # 3.6
-The so-called [The Great Pyramid of Giza](../Terms/The%20Great%20Pyramid%20of%20Giza.md) had two capstones. One was of our design and was of smaller and carefully contrived pieces of the material upon your planet which you call “granite.” This was contrived for crystalline properties and for the proper flow of your atmosphere via a type of what you would call “chimney.”
+The so-called [The Great Pyramid of Giza](The-Law-of-One/Places/The%20Great%20Pyramid%20of%20Giza.md) had two capstones. One was of our design and was of smaller and carefully contrived pieces of the material upon your planet which you call “granite.” This was contrived for crystalline properties and for the proper flow of your atmosphere via a type of what you would call “chimney.”
 
 At a time when we as a people had left your density, the original was taken away and a more precious one substituted. It consisted, in part, of a golden material. This did not change the properties of the pyramid, as you call it, at all, and was a distortion due to the desire of a few to mandate the use of the structure as a royal place only.
 - This means that the pyramid were then mistakenly taken as a royal tomb rather than a place for initiate and healing

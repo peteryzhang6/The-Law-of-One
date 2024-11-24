@@ -13,6 +13,9 @@
 
 22.27: There is only one law. That is the Law of One. Other so-called laws are distortions of this law, some of them primal and most important for progress to be understood. However, it is well that each so-called law, which we also call “way,” be understood as a distortion rather than a law. There is no multiplicity to the Law of One.
 
+23.15: the general reduction of thought over the long time on planet Earth with respect to an understanding of the Law of One created a condition in which this— what we call disease could develop.
+- Egypt - formation of a money system and a very active trading and development of those tendencies towards greed and power; thus, the enslaving of entities by other entities and the misapprehension of the Creator within each entity.
+
 [[Jesus Christ#John 14 6]]
 # Tuning to the Circle of One
 2.6: The vibrations may well be purified by a simple turning to the circle of One and the verbal vibration while doing so of the following dialogue:  
