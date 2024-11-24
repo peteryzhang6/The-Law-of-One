@@ -8,6 +8,8 @@
 - [[7th Density]]
 - [[8th Density]]
 
+Please check supplementary materials if one wishes more info: [[Densities]]
+
 1st to 7th Density together are called an octave.
 - 16.51: The term density is a, what you would call, mathematical one. The closest analogy is that of music, whereby after seven notes on your western type of scale, if you will, the eighth note begins a new octave. Within your great octave of existence which we share with you, there are seven octaves or densities. Within each density there are seven sub-densities. Within each sub-density, seven sub-sub-densities, and so on infinitely.
 

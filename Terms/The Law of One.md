@@ -29,7 +29,7 @@ Both together: “Rejoice then and purify this place in the Law of One. Let no t
 # Misc
 
 6.14
-- **Questioner:** I think it would be appropriate to discover how the Law of One acts in this transfer of beings to our planet and the action of [[harvest]]?
+- **Questioner:** I think it would be appropriate to discover how the Law of One acts in this transfer of beings to our planet and the action of [[Harvest]]?
 - **Ra:** I am Ra. The Law of One states simply that all things are one, that all beings are one. There are certain behaviors and thought-forms consonant with the understanding and practice of this law. Those who, finishing a cycle of experience, demonstrate various grades of distortion of that understanding of thought and action will be separated by their own choice into the vibratory distortion most comfortable to their mind/body/spirit complexes. This process is guarded or watched by those nurturing beings who, being very close to the Law of One in their distortions, nevertheless have the distortion towards active service. 
 - Thus, the illusion is created of light, or more properly but less understandably, light/love. This is in varying degrees of intensity. The spirit complex of each harvested entity moves along the line of light until the light grows too glaring, at which time the entity stops. This entity may have barely reached third density or may be very, very close to the ending of the third-density light/love distortion vibratory complex. Nevertheless, those who fall within this octave of intensifying light/love then experience a major cycle during which the opportunities are many for the discovery of the distortions which are inherent in each entity and, therefore, the lessening of these distortions.
 # Infringement on Law of One

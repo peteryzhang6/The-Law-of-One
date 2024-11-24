@@ -13,6 +13,8 @@
 
 33.20: density of love, compassion, and understanding
 
+25.9: The fourth density is the only density besides your own which, lacking the wisdom to refrain from battle, sees the necessity of the battle.
+
 16.50 Ra: I am Ra. We ask you to consider as we speak that there are no words for positively describing fourth density. We can only explain what is not and approximate what is. Beyond fourth density our ability grows more limited still until we become without words. That which fourth density is not: it is not of words, unless chosen. It is not of heavy chemical vehicles for body complex activities. It is not of disharmony within self. It is not of disharmony within peoples. It is not within limits of possibility to cause disharmony in any way. Approximations of positive statements: it is a plane of a type of bipedal vehicle which is much denser and more full of life; it is a plane wherein one is aware of the thoughts of other-selves; it is a plane where one is aware of the vibrations of other-selves; it is a plane of compassion and understanding of the sorrows of third density; it is a plane striving towards wisdom or light; it is a plane wherein individual differences are pronounced although automatically harmonized by group consensus.
 - 10-19-2024 Sat: again I can confirm that 3D is of a world of full of misunderstandings and as Ra said on how would it describe 4D is that one of which is not - not through the sight of eyes; not through the smell of nose, not through the hearing of ears; not through the tastes of mouth; not through the touch of body; but of the voidness in the heart and mind's eye.
 # 4D Earth
