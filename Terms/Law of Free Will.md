@@ -1,5 +1,17 @@
 # Law of Free Will
-Is one of the [[Primal Distortion]] of Law of One. 
+Is the first [[Primal Distortion]] of Law of One. 
+
+27.10: Also called Way of Confusion. 
+
+27.8: In this distortion of the Law of One it is recognized that the Creator will know Itself.
+- [[One Original Thought]]
+- 27.9: the Creator will know Itself the Creator, then grants for this knowing the concept of freedom— total freedom of choice in the ways of knowing
+
+27.10: This then being the first distortion of the Law of One, which I am assuming is the Law of Intelligent Infinity, from all other— correction, all other distortions which are the total experience of the creation spring from this. Is this correct?
+- **Ra:** I am Ra. This is both correct and incorrect. In your illusion all experience springs from the Law of Free Will or the Way of Confusion. In another sense, which we are learning, the experiences are this distortion.
+- *thoughts*: It is correct because of view the one side of the coin and it is incorrect because the other side of the coin is ignored.
+	- correct/noted part: Because of the Law of Free Will, we are able to experience.
+	- incorrect/left out part: Because we want to experience, therefore Law of Free Will is created. 
 
 Can be seen as a product or result of 1st - 3rd Density, of the beingness of, the movement of, and the conscious choice of the consciousness.
 
