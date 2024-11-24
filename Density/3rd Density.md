@@ -19,6 +19,14 @@
 
 19.16: The majority of third-density beings is far along the chosen path before realization of that path is conscious.
 
+21.9: The incarnation pattern of the beginning third-density mind/body/spirit complex begins in [[God|darkness]], for you may think or consider of your density as one of, as you may say, a sleep and a forgetting. This is the only plane of forgetting. It is necessary for the third-density entity to forget so that the mechanisms of confusion or free will may operate upon the newly individuated consciousness complex.
+- Thus, the beginning entity is one in all innocence oriented towards animalistic behavior using other-selves only as extensions of self for the preservation of the all-self. The entity becomes slowly aware that it has needs, shall we say, that are not animalistic; that is, that are useless for survival. These needs include: the need for companionship, the need for laughter, the need for beauty, the need to know the universe about it. These are the beginning needs.
+- As the incarnations begin to accumulate, further needs are discovered: the need to trade, the need to love, the need to be loved, the need to elevate animalistic behaviors to a more universal perspective.
+- During the first portion of third-density cycles, incarnations are automatic and occur rapidly upon the cessation of energy complex of the physical vehicle. There is small need to review or to heal the experiences of the incarnation. As, what you would call, the energy centers begin to be activated to a higher extent, more of the content of experience during incarnation deals with the lessons of love.
+- Thus the time, as you may understand it, between incarnations is lengthened to give appropriate attention to the review and the healing of experiences of the previous incarnation. At some point in third density, the green-ray energy center becomes activated and at that point incarnation ceases to be automatic.
+
+21.11: About 54 percent (1981) of entities are making their own choices on [[incarnation]].
+
 76.15 The 3rd density is a choice 
 
 76.16 The prelude to choice must encompass the laying of the foundation, the establishment of the illusion and the viability of that which can be made spiritually viable. The remainder of the densities is continuous refining of the choice. This also is greatly lengthened, as you would use the term. The choice is, as you put it, the work of a moment but is the axis upon which the creation turns.

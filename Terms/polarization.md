@@ -56,3 +56,5 @@ Thus Ra states that the path of STO will be one of that infinite as one refines 
 19.18: The further an entity has, what you would call, polarized, the more easily this entity may change polarity, for the more power and awareness the entity will have.  
 - Those truly helpless are those who have not consciously chosen but who repeat patterns without knowledge of the repetition or the meaning of the pattern.
 - 19.19: It then seems that there is an extreme potential in this polarization the same as there is in— to make an analogy, using electricity: We have a positive and negative pole. The more you build the charge on either of these, the greater the potential difference and the greater the ability to do work, as we call it, in the physical.
+
+21.20: What is necessary to balance is opportunity. When there is ignorance, there is no opportunity. When there exists a potential, then each opportunity shall be balanced, this balancing caused by not only the positive and negative orientations of those offering aid but also the orientation of those requesting aid.
