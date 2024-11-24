@@ -27,6 +27,21 @@
 
 21.11: About 54 percent (1981) of entities are making their own choices on [[incarnation]].
 
+22.5: By the end of the second cycle (2nd 25,000-year), the Law of Responsibility had begun to be effectuated by the increasing ability of entities to grasp those lessons which there are to be learned in this density. Thus, entities had discovered many ways to indicate a bellicose nature, not only as tribes or what you call nations but in personal relationships, each with the other, the concept of barter having given way in many cases to the concept of money; also, the concept of ownership having won ascendancy over the concept of non-ownership on an individual or group basis.
+- Each entity then was offered many more subtle ways of demonstrating either service towards others or service to self with the distortion of the manipulation of others. As each lesson was understood, those lessons of sharing, of giving, of receiving in free gratitude— each lesson could be rejected in practice.
+- Without demonstrating the fruits of such learn/teaching the life span became greatly reduced, for the ways of honor/duty were not being accepted.
+
+22.6: Would this shortened life span help the entity in any way in that he would have more at times in between incarnations to review his mistakes, or would this shortened life span hinder him?
+- I am Ra. Both are correct. The shortening of the life span is a distortion of the Law of One which suggests that an entity not receive more experience in more intensity than it may bear. This is only in effect upon an individual level and does not hold sway over planetary or social complexes.
+- Thus the shortened life span is due to the necessity for removing an entity from the intensity of experience which ensues when wisdom and love are, having been rejected, reflected back into the consciousness of the Creator without being accepted as part of the self, this then causing the entity to have the need for healing and for much evaluation of the incarnation.
+- The incorrectness lies in the truth that, given appropriate circumstances, a much longer incarnation in your space/time continuum is very helpful for continuing this intensive work until conclusions have been reached through the catalytic process.
+
+22.9: regarding the number of incarnate mind/body/spirit complexes at the end of the second major cycle, this number being approximately three four five, oh oh oh, three hundred forty-five thousand (345,000) entities.
+- 22.10: approximately 150 entities were harvestable.
+- 22.11: These entities were visited by the Confederation and became desirous of remaining in order to aid the planetary consciousness.
+- 22.12: The Confederation visited these 150 entities in the form of a light being appeared bearing that which may be called a shield of light. It spoke of the oneness and infinity of all creation and of those things which await those ready for harvest. It described in golden words the beauties of love as lived. It then allowed a telepathic linkage to progressively show those who were interested the plight of third density when seen as a planetary complex. It then left.
+- 22.15: The one known as sound vibration complex, Saint Augustine, is of such a nature. The one known as Saint Teresa of such a nature. The one known as Saint Francis of Assisi of such nature.
+
 76.15 The 3rd density is a choice 
 
 76.16 The prelude to choice must encompass the laying of the foundation, the establishment of the illusion and the viability of that which can be made spiritually viable. The remainder of the densities is continuous refining of the choice. This also is greatly lengthened, as you would use the term. The choice is, as you put it, the work of a moment but is the axis upon which the creation turns.

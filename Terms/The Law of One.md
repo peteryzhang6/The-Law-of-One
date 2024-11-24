@@ -11,6 +11,8 @@
 16.38: And then the Law of One is truly universal in creating the progression toward the eighth density or octave in all galaxies.
 - There are infinite forms, infinite understandings, but the progression is one.
 
+22.27: There is only one law. That is the Law of One. Other so-called laws are distortions of this law, some of them primal and most important for progress to be understood. However, it is well that each so-called law, which we also call “way,” be understood as a distortion rather than a law. There is no multiplicity to the Law of One.
+
 [[Jesus Christ#John 14 6]]
 # Tuning to the Circle of One
 2.6: The vibrations may well be purified by a simple turning to the circle of One and the verbal vibration while doing so of the following dialogue:  

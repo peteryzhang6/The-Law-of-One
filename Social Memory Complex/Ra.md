@@ -10,6 +10,8 @@
 17.13: You speak with Ra. There is no separation. You would call it a social memory complex thus indicating many-ness. To our understanding, you are speaking to an individualized portion of consciousness.
 # Why Ra service us
 14.18: I speak for the social memory complex termed Ra. We came among you to aid you. Our efforts in service were perverted. Our desire then is to eliminate as far as possible the distortions caused by those misreading our information and guidance. The general cause of service such as the Confederation offers is that of the primal distortion of the Law of One, which is [[STO-STS|service]]. [[The Infinite Creator|The One Being]] of the creation is like unto a body, if you will accept this third-density analogy. Would we ignore a pain in the leg? A bruise upon the skin? A cut which is festering? No. There is no ignoring a call. We, the entities of sorrow, choose as our service the attempt to heal the sorrow which we are calling analogous to the pains of a physical body complex distortion.
+
+22.26: We remind you that we are one of the naïve members of that Confederation and are still attempting to recoup the damage for which we feel responsibility. It is our duty as well as honor to continue with your peoples, therefore, until all traces of the distortions of our teach/learnings have been embraced by their opposite distortions, and balance achieved.
 # Channeling Ra
 1.0: We will therefore describe the type of vibration which is being sent. The instrument will find us entering the energy field at a slight angle towards the back of the top of the head in a narrow but strong area of intensity.
 
