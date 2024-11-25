@@ -13,6 +13,15 @@
 
 Check [[Dao]]
 
+28.1: I have the concept that intelligent infinity expands outward from all locations everywhere. It expands outward in every direction uniformly like the surface of a balloon or a bubble expanding outward from every point everywhere. It expands outward at what’s called unit velocity or the velocity of light. This is Larson’s idea of the progression of what he calls space/time. Is this concept correct?
+- **Ra:** I am Ra. This concept is incorrect as is any concept of the one intelligent infinity. This concept is correct in the context of one particular Logos, or Love, or focus of this Creator which has chosen Its, shall we say, natural laws and ways of expressing them mathematically and otherwise.
+- The one undifferentiated intelligent infinity, unpolarized, full and whole, is the macrocosm of the mystery-clad being. We are messengers of the Law of One. Unity, at this approximation of understanding, cannot be specified by any physics but only be activated or potentiated intelligent infinity due to the catalyst of free will. This may be difficult to accept. However, the understandings we have to share begin and end in mystery.
+
+*Thoughts on 28.1:* Again, Ra says it is correct and incorrect like the two sides of a coin.
+- Correct as in Don's observation is correct within our Logos - our local configuration of Sun and Earth
+- Incorrect as in Don's observation might not be true elsewhere in the universe that has different configuration/Logos
+- [[TTC-Ch 1]]
+
 ---
 
 13.7: Awareness led to the focus of infinity into infinite energy. You have called this by various vibrational sound complexes, the most common to your ears being “Logos” or “Love.” The Creator is the focusing of infinity as an aware or conscious principle called by us as closely as we can create understanding/learning in your language, intelligent infinity.

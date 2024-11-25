@@ -27,6 +27,13 @@ Please check supplementary materials if one wishes more info: [[Densities]]
 
 16.22: There is past, present, and future in third density. In an overview such as an entity may have, removed from the space/time continuum, it may be seen that in the cycle of completion there exists only the present. We, ourselves, seek to learn this understanding. At the seventh level or dimension, we(Ra) shall, if our humble efforts are sufficient, become one with all, thus having no memory, no identity, no past or future, but existing in the all.
 - 16.23: It is our understanding that it would not be our awareness, but simply awareness of the Creator. In the Creator is all that there is. Therefore, this knowledge would be available.
+
+28.15: Now, as the major galaxy is created, and I am assuming all of its densities— I am assuming all— there are eight densities created when this major galaxy is created. Is this correct?
+- **Ra:** I am Ra. This is basically correct. However, it is well to perceive that the eighth density functions also as the beginning density or first density, in its latter stages, of the next octave of densities.
+
+28.16: Are you saying then there are an infinite number of octaves of densities one through eight?
+- **Ra:** I am Ra. We wish to establish that we are truly humble messengers of the Law of One. We can speak to you of our experiences and our understandings and teach/learn in limited ways. However, we cannot speak in firm knowledge of all the creations. We know only that they are infinite. We assume an infinite number of octaves.
+- However, it has been impressed upon us by our own teachers that there is a mystery-clad unity of creation in which all consciousness periodically coalesces and again begins. Thus we can only say we assume an infinite progression though we understand it to be cyclical in nature and, as we have said, clad in mystery.
 # 7.16 Density Progression
 The progress through densities is sequential. A fifth-density social memory complex would be comprised of mind/body/spirit complexes harvested from fourth density. Then the conglomerate or mass mind/body/spirit complex does its melding and the results are due to the infinitely various possibilities of combination of distortions.
 

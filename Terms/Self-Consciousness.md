@@ -8,3 +8,5 @@ From 18.7, I can understand that a child, in average, becomes self-conscious in 
 - I am Ra. This is correct. It may be noted that it has been arranged by your social complex structures that the newer entities to incarnation are to be provided with guides of a physical mind/body/spirit complex, thus being able to learn quickly what is consonant with the Law of One.
 - 18.9: These guides are what you call parents, teachers, and friends.
 
+28.7: Does a unit of consciousness, an individualized unit of consciousness, create, say, a unit of the creation? I will give an example. Would one individualized consciousness create one galaxy of stars, the type that has many millions of stars in it. Does this happen?
+- **Ra:** I am Ra. This can happen. The possibilities are infinite. Thus a Logos may create what you call a star system or it may be the Logos creating billions of star systems. This is the cause of the confusion in the term galaxy, for there are many different Logos entities or creations and we would call each, using your sound vibration complexes, a galaxy.
