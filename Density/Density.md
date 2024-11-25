@@ -34,6 +34,10 @@ Please check supplementary materials if one wishes more info: [[Densities]]
 28.16: Are you saying then there are an infinite number of octaves of densities one through eight?
 - **Ra:** I am Ra. We wish to establish that we are truly humble messengers of the Law of One. We can speak to you of our experiences and our understandings and teach/learn in limited ways. However, we cannot speak in firm knowledge of all the creations. We know only that they are infinite. We assume an infinite number of octaves.
 - However, it has been impressed upon us by our own teachers that there is a mystery-clad unity of creation in which all consciousness periodically coalesces and again begins. Thus we can only say we assume an infinite progression though we understand it to be cyclical in nature and, as we have said, clad in mystery.
+
+29.11: Yesterday you stated that planets in first density are in a timeless state to begin with. Can you tell me how the effect we appreciate as time comes into being?
+- **Ra:** I am Ra. We have just described to you the state of beingness of each Logos. The process by which space/time comes into continuum form is a function of the careful building, shall we say, of an entire or whole plan of vibratory rates, densities, and potentials. When this plan has coalesced in the thought complexes of Love, then the physical manifestations begin to appear; this first manifestation stage being awareness or consciousness.
+- At the point at which this coalescence is at the livingness or beingness point, the point or fountainhead of beginning, space/time then begins to unroll its scroll of livingness.
 # 7.16 Density Progression
 The progress through densities is sequential. A fifth-density social memory complex would be comprised of mind/body/spirit complexes harvested from fourth density. Then the conglomerate or mass mind/body/spirit complex does its melding and the results are due to the infinitely various possibilities of combination of distortions.
 

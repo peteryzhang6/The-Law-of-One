@@ -24,15 +24,26 @@ Can also be called the Way of Love.
 27.17: Now, this— then light which forms the densities has what we call color, and this color is divided into seven categories of color. Can you tell me, is there is a reason or an explanation for these categories of color? Can you tell me something about that?
 - The nature of the vibratory patterns of your universe is dependent upon the configurations placed upon the original material or light by the focus or Love using Its intelligent energy to create a certain pattern of illusions or densities in order to satisfy Its own intelligent estimate of a method of knowing Itself. Thus the colors, as you call them, are as strait, or narrow, or necessary as is possible to express, given the will of Love.
 
-*Thoughts on 27.17:* This concept can be thought as the relationship and layering of Logos and its sub-Logos. 
-- The first layer of Logo and sub-Logos: Logo being the Infinite Creator and through the Law of Free Will (Intelligent Infinity/energy) and Law of Love to create Light or physical materials of the galaxy our solar system in. 
+*Thoughts on 27.17:* This concept can be thought as the relationship and layering of [[Logos]] and its sub-Logos. 
+- The first layer of Logos and sub-Logos: Logo being the Infinite Creator and through the Law of Free Will (Intelligent Infinity/energy) and Law of Love to create Light or physical materials of the galaxy our solar system in. 
 - The second layer: Our galaxy acts as the co-Creator and within its own vibration/Love creates the Light/stars.
 - The third layer: Our Sun acts as the co-co-Creator and within its own vibration/Love creates/attracts the planets.
+	- 29.1: Our sun, as we know it, is a sub-Logos or the physical manifestation of a sub-Logos.
+	- 29.2: The sub-Logos of your solar entity differentiated some experiential components within the patterns of intelligent energy set in motion by the Logos which created the basic conditions and vibratory rates consistent throughout your, what you have called, major galaxy.
 - The fourth layer: The Earth acts as the co-co-co-Creator and within its own vibration/Love to create beings - animals, plants, minerals, humans, and so on. 
 - The fifth layer: We act as the co-co-co-co-Creator and within our own vibration/Love are we able to observe the Light created by Sun. The 7 colors we see are a local configuration of the Sun and its Earth.
 - 28.3: This light that occurred as a consequence of vibration which is a consequence of Love.
 - 28.4: This light then can condense into material as we know it in our density, into all of our chemical elements because of rotations of the vibration at quantized intervals or units of angular velocity
 - Also check [[TTC-Ch 1]]
+- It is also to note that there might be layers missing in between due to the limitation of my own knowledge
+
+29.12: As the Love creates the vibration— I will make this statement, first. Let me say, I believe that Love creates the vibration in space/time in order to form the photon. Is this correct?
+- **Ra:** I am Ra. This is essentially correct.
+
+29.13: Then the continued application of Love— I will assume this is directed by a sub-Logos or a sub-sub-Logos— this continued application of Love creates rotations of these vibrations which are in discrete units of angular velocity. This then creates chemical elements in our physical illusion and I will assume the elements in the other or what we would call nonphysical or other densities in the illusion. Is this correct?
+- **Ra:** I am Ra. The Logos creates all densities. Your question was unclear. However, we shall state the Logos does create both the space/time densities and the accompanying time/space densities.
+- 29.14: What I am assuming is that the rotations, the quantized incremental rotations of the vibrations show up as the material of these densities. Is this correct?
+	- **Ra:** I am Ra. This is essentially correct.
 
 28.2: "the nature of the vibratory patterns of your universe is dependent upon the configurations placed on the original material or light by the focus of Love using Its intelligent energy to create a certain pattern of… of illusions or densities.” Then after this material you said that there’s further information which you’d be happy to share, but we ran out of time. Could you complete the further information on that?
 - **Ra:** I am Ra. In discussing this information we then, shall we say, snap back into the particular methods of understanding or seeing that which is that the one, sound vibration complex, Dewey, offers; this being correct for the second meaning of intelligent infinity: the potential which then through catalyst forms the kinetic.

@@ -1,6 +1,7 @@
 ---
 aliases:
   - One Being
+  - One Creator
 ---
 # The Infinite Creator
 
