@@ -34,7 +34,7 @@ Can also be called the Way of Love.
 - The fifth layer: We act as the co-co-co-co-Creator and within our own vibration/Love are we able to observe the Light created by Sun. The 7 colors we see are a local configuration of the Sun and its Earth.
 - 28.3: This light that occurred as a consequence of vibration which is a consequence of Love.
 - 28.4: This light then can condense into material as we know it in our density, into all of our chemical elements because of rotations of the vibration at quantized intervals or units of angular velocity
-- Also check [[TTC-Ch 1]]
+- Also check [[TaoTeChing-Ch 1]]
 - It is also to note that there might be layers missing in between due to the limitation of my own knowledge
 
 29.12: As the Love creates the vibration— I will make this statement, first. Let me say, I believe that Love creates the vibration in space/time in order to form the photon. Is this correct?

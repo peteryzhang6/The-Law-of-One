@@ -1,5 +1,13 @@
 # The Body
 One part of the [[Mind-Body-Spirit Complex]]
+
+30.3: Upon our physical death, as we call it, from this particular density and this particular incarnative experience, we lose this chemical body. Immediately after the loss of this chemical body do we maintain a different type of body? Is there still a mind/body/spirit complex at that point?
+- **Ra:** I am Ra. This is correct. The mind/body/spirit complex is quite intact; the physical body complex you now associate with the term body being but manifestation of a more dense and intelligently informed and powerful body complex.
+
+30.4: Is there any loss to the mind or spirit after this transition which we call death or any impairment of either because of the loss of this chemical body that we now have?
+- **Ra:** I am Ra. In your terms there is a great loss of mind complex due to the fact that much of the activity of a mental nature of which you are aware during the experience of this space/time continuum is as much of a surface illusion as is the chemical body complex.
+- In other terms nothing whatever of importance is lost; the character or, shall we say, pure distillation of emotions and biases or distortions and wisdoms, if you will, becoming obvious for the first time, shall we say; these pure emotions and wisdoms and bias/distortions being, for the most part, either ignored or underestimated during physical life experience.
+- In terms of the spiritual, this channel is then much opened due to the lack of necessity for the forgetting characteristic of third density
 # Healing
 4.17 The second part has to do with the disciplines of the body complexes. In the streamings reaching your planet at this time, these understandings and disciplines have to do with the balance between love and wisdom in the use of the body in its natural functions.  
 - 4.18: Imagine the body. Imagine the more dense aspects of the body. Proceed therefrom to the very finest knowledge of energy pathways which revolve and cause the body to be energized. Understand that all natural functions of the body have all aspects from dense to fine, and can be transmuted to what you may call sacramental. This is a brief investigation of the second area.  

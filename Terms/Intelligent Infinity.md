@@ -20,7 +20,7 @@ Check [[Dao]]
 *Thoughts on 28.1:* Again, Ra says it is correct and incorrect like the two sides of a coin.
 - Correct as in Don's observation is correct within our Logos - our local configuration of Sun and Earth
 - Incorrect as in Don's observation might not be true elsewhere in the universe that has different configuration/Logos
-- [[TTC-Ch 1]]
+- [[TaoTeChing-Ch 1]]
 
 ---
 

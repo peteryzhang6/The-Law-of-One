@@ -9,7 +9,11 @@
 [The Law of One by Ra - A Humble Messenger of The Law of One](https://www.lawofone.info/) 
 
 > [!NOTE]
-> One may find difficulty in reading the material of Law of One and other spiritual materials, as did I too experienced difficulty in understanding the Law of One when I first started reading it in Fall of 2020 and I only completed Book 1 of Law of One. I experience great pain and difficulty in merging the Law of One with other spiritual materials with my personal experience through 2020 to 2022. In 2023-2024, I again read through Book 1 to Book 4 to session 90+, but this time was able to learn and understand materials previously not understood. Now in this repo, it is my third time reading and am attempting to create more comprehensive understanding which I can track and expand upon.
+> One may find difficulty in reading the material of Law of One and other spiritual materials, as did I too experienced difficulty in understanding the Law of One when I first started reading it in Fall of 2020 and I only completed Book 1 of Law of One. I experience great pain and difficulty in merging the Law of One with other spiritual materials with my personal experience through 2020 to 2022. 
+> 
+> In 2023-2024, I again read through Book 1 to Book 4 to session 90+, but this time was able to learn and understand materials previously not understood. 
+> 
+> Now in this repo, it is my third time reading and am attempting to create more comprehensive understanding which I can track and expand upon.
 
 This repository is of an seeking/understanding of The Law of One by the entity Peter Yunpeng Zhang and an attempt to share this understanding to those who are also on the path and wants a different point of view.
 
@@ -24,8 +28,8 @@ The repo currently contains files I created previously in other locations, thus 
 # Table of Contents
 - [[Prayer]] and [[Chant]]
 # TODOs
-- currently going through Law of One session by session to extract excerpts and categorize them into appropriate files along with minor comments
-- detailed comments and understanding will be added here and there depends on if I have inspirations on them
+- [ ] (currently working on) go through Law of One session by session to extract excerpts and categorize them into appropriate files along with minor comments
+- [ ] detailed comments and understanding will be added and further categorization and breakdown of large files into smaller digestible files 
 # Related Repos
 - [Peter Yunpeng Zhang](https://github.com/peteryzhang6/pyzzyp) 
 	- Private repo
