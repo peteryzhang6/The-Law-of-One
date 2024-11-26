@@ -11,6 +11,8 @@ Each human entity in 3D is made up of the following components:
 
 29.26: Each mind/body/spirit complex is an unique portion of the [[The Infinite Creator|One Creator]].
 
+35.4: To know your self is to have the foundation upon firm ground.
+
 18.5:
 - The proper role of the entity is in [[3rd Density|this density]] to experience all things desired, to then analyze, understand, and accept these experiences, distilling from them the love/light within them. Nothing shall be overcome. That which is not needed falls away.
 - The orientation develops due to analysis of desire. These desires become more and more distorted towards conscious application of love/light as the entity furnishes itself with distilled experience. We have found it to be inappropriate in the extreme to encourage the overcoming of any desires, except to suggest the imagination rather than the carrying out in the physical plane, as you call it, of those desires not consonant with the Law of One; this preserving the primal distortion of free will.
@@ -46,7 +48,7 @@ Each human entity in 3D is made up of the following components:
 - We grasp from this question that you realize that the primary mechanism for catalytic experience in third density is other-self. The list of other catalytic influences: firstly, the Creator’s universe; secondly, the self.
 
 33.15: Can you list any sub-headings under the self that would— or ways that the self is acted on catalytically to produce experience?
-- **Ra:** I am Ra. Firstly, the self unmanifested. Secondly, the self in relation to the societal self created by self and other-self. Thirdly, the interaction between self and the gadgets, toys, and amusements of the self, other-self invention. Fourthly, the self relationship with those attributes which you may call war and rumors of war.
+- **Ra:** I am Ra. Firstly, the [[Self Unmanifested|self unmanifested]]. Secondly, the self in relation to the societal self created by self and other-self. Thirdly, the interaction between self and the gadgets, toys, and amusements of the self, other-self invention. Fourthly, the self relationship with those attributes which you may call war and rumors of war.
 - 33.16: the catalyst of physical pain goes under the heading of the unmanifested self; that is, the self which does not need other-self in order to manifest or act.
 # Definition
 30.2:

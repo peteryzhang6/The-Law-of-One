@@ -11,14 +11,10 @@ tags:
 2.1: To teach/learn is the Law of One in one of its most elementary distortions.
 
 17.2:
-
-It is impossible to help another being directly. It is only possible to make catalyst available in whatever form, the most important being the radiation of realization of oneness with the Creator from the self, less important being information such as we share with you.  
-  
-We, ourselves, do not feel an urgency for this information to be widely disseminated. It is enough that we have made it available to three, four, or five. This is extremely ample reward, for if one of these obtains fourth-density understanding due to this catalyst then we shall have fulfilled the Law of One in the distortion of service.  
-  
-We encourage a dispassionate attempt to share information without concern for numbers or quick growth among others. That you attempt to make this information available is, in your term, your service. The attempt, if it reaches one, reaches all.  
-  
-We cannot offer shortcuts to enlightenment. Enlightenment is of the moment, is an opening to intelligent infinity. It can only be accomplished by the self, for the self. Another self cannot teach/learn enlightenment, but only teach/learn information, inspiration, or a sharing of love, of mystery, of the unknown that makes the other-self reach out and begin the seeking process that ends in a moment, but who can know when an entity will open the gate to the present?
+- It is impossible to help another being directly. It is only possible to make catalyst available in whatever form, the most important being the radiation of realization of oneness with the Creator from the self, less important being information such as we share with you.
+- We, ourselves, do not feel an urgency for this information to be widely disseminated. It is enough that we have made it available to three, four, or five. This is extremely ample reward, for if one of these obtains fourth-density understanding due to this catalyst then we shall have fulfilled the Law of One in the distortion of service.
+- We encourage a dispassionate attempt to share information without concern for numbers or quick growth among others. That you attempt to make this information available is, in your term, your service. The attempt, if it reaches one, reaches all.
+- We cannot offer shortcuts to enlightenment. Enlightenment is of the moment, is an opening to intelligent infinity. It can only be accomplished by the self, for the self. Another self cannot teach/learn enlightenment, but only teach/learn information, inspiration, or a sharing of love, of mystery, of the unknown that makes the other-self reach out and begin the seeking process that ends in a moment, but who can know when an entity will open the gate to the present?
 # Learn/Teach 
 is an entity called student, who first study the knowledge from the outside then later apply the knowledge to real life.
 

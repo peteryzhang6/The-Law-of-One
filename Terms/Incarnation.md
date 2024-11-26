@@ -5,6 +5,10 @@
 Incarnation is automatic in 3rd density until the green ray center is activated.
 - 21.9: At some point in third density, the green-ray energy center becomes activated and at that point incarnation ceases to be automatic.
 - 21.10: When incarnation ceases to become automatic, the entity can decide when he needs to reincarnate for the benefit of his own learning. He also select his parents.
+
+35.1: When any entity comes into third-density incarnation, each of its energy centers is potentiated but must be activated by the self using experience.
+
+35.3: The basic guidelines for the lessons and purposes of incarnation had been carefully set forth before incarnation by the mind/body/spirit complex totality.
 # Past Incarnations/experiences
 9.2 However, such information as this is carefully guarded by your mind/body/spirit being totality so that your present space/time experiences will be undiluted.
 

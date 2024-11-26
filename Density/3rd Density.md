@@ -1,7 +1,7 @@
 # 3rd Density
 <- [[2nd Density]] | [[4th Density]] ->
 
-13.21: Density of [[self-consciousness]] or self-awareness. ... The first density of consciousness of spirit.
+13.21: Density of [[Self-Consciousness]] or self-awareness. ... The first density of consciousness of spirit.
 
 16.39: It is absolutely necessary that an entity consciously realize it does not understand in order for it to be harvestable. Understanding is not of this density.
 - 16.40: it was not necessary for an entity to be consciously aware of the Law of One to go from third to fourth density
@@ -43,8 +43,6 @@
 - 22.15: The one known as sound vibration complex, Saint Augustine, is of such a nature. The one known as Saint Teresa of such a nature. The one known as Saint Francis of Assisi of such nature.
 
 32.2: The yellow ray is a focal and very powerful ray and concerns the entity in relation to, shall we say, groups, societies, or large numbers of mind/body/spirit complexes. This yellow-ray vibration is at the heart of bellicose actions in which one group of entities feel the necessity and right of dominating other groups of entities and bending their wills to the wills of the masters. The negative path, as you would call it, uses a combination of the yellow ray and the orange ray in its polarization patterns. These rays, used in a dedicated fashion, will bring about a contact with intelligent infinity. The usual nature of sexual interaction, if one is yellow or orange in primary vibratory patterns, is one of blockage and then insatiable hunger due to the blockage. When there are two selves vibrating in this area the potential for polarization through the sexual interaction is begun, one entity experiencing the pleasure of humiliation and slavery or bondage, the other experiencing the pleasure of mastery and control over another entity. In this way a sexual energy transfer of a negative polarity is experienced.
-
-
 
 76.15 The 3rd density is a choice 
 
