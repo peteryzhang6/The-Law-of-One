@@ -42,12 +42,20 @@ The STS needs STO when the providing source is in danger as STO is best known fo
 - [[Taras Bulba]]
 - [[Genghis Khan]]
 - [[Rasputin]]
+- [[Heinrich Himmler]]
 
 11.11: The first two entities mentioned made little use of these abilities consciously. However, they were bent single-mindedly upon service to self, sparing no efforts in personal discipline to double, re-double and so empower this gateway. The third was a conscious adept and also spared no effort in the pursuit of service to self.
 
 11.12: These entities are in the dimension known to you as fourth. Therefore the space/time continua are not compatible. An approximation of the space/time locus of each would net no actual understanding. Each chose a fourth-density planet which was dedicated to the pursuit of the understanding of the Law of One through service to self, one in what you know as the Orion group, one in what you know as Cassiopeia, one in what you know as Southern Cross; however, these loci are not satisfactory. We do not have vocabulary for the geometric calculations necessary for transfer of this understanding to you.
 
+36.14: We remind you that the negative path is one of separation. What is the first separation: the self from the self. The one known as Himmler did not choose to use its abilities of will and polarization to seek guidance from any source but its conscious drives, self-chosen in the life experience and nourished by previous biases created in other life experiences.
+
 Also Check [[Orion]] - STS Social Memory Complex
+
+38.14: All right, I’ll just ask this one. I have here that— could you give me some idea of what conditions are like on a fourth-density negative or self-service planet? Can you do this?
+- **Ra:** I am Ra. The graduation into fourth-density negative is achieved by those beings who have consciously contacted intelligent infinity through the use of red, orange, and yellow rays of energy. Therefore, the planetary conditions of fourth-density negative include the constant alignment and realignment of entities in efforts to form the dominant patterns of combined energy.
+- The early fourth density is one of the most intensive struggle. When the order of authority has been established and all have fought until convinced that each is in the proper placement for power structure, the social memory complex begins. Always the fourth-density effects of telepathy and the transparency of thought are attempted to be used for the sake of those at the apex of the power structure.
+- This, as you may see, is often quite damaging to the further polarization of fourth-density negative entities, for the further negative polarization can only come about through group effort. As the fourth-density entities manage to combine, they then polarize through such services to self as those offered by the crusaders of Orion.
 # How should STO treat STS
 Like Ra said, with Love and Light.
 

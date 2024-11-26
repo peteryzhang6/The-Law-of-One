@@ -1,0 +1,2 @@
+# Inspiration
+38.4: The mechanism of inspiration involves an extraordinary faculty of desire or will to know or to receive in a certain area accompanied by the ability to open to and trust in what you may call intuition.
