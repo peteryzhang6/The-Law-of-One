@@ -24,6 +24,9 @@ The STO will need STS when the self is in danger as STS is best known for its ab
 17.30: are there best ways of being of service to others?
 - The best way of service to others is the constant attempt to seek to share the love of the Creator as it is known to the inner self. This involves self knowledge and the ability to open the self to the other-self without hesitation. This involves, shall we say, radiating that which is the essence or the heart of the mind/body/spirit complex.  
 - Speaking to the intention of your question, the best way for each seeker in third density to be of service to others is unique to that mind/body/spirit complex. This means that the mind/body/spirit complex must then seek within itself the intelligence of its own [[discernment]] as to the way it may best serve other-selves. This will be different for each. There is no best. There is no generalization. Nothing is known.
+
+32.1: Thus we see protection being very simple. Give thanksgiving for each moment. See the self and the other-self as Creator. Open the heart. Always know the light and praise it. This is all the protection necessary.
+- 33.2: Harmony, thanksgiving, and praise of opportunities and of the Creator: these are your protection.
 # Service to self (STS)
 The STS needs STO when the providing source is in danger as STO is best known for its ability to preserve the outer source.
 

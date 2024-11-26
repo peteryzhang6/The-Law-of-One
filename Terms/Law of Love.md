@@ -35,7 +35,7 @@ Can also be called the Way of Love.
 - 28.3: This light that occurred as a consequence of vibration which is a consequence of Love.
 - 28.4: This light then can condense into material as we know it in our density, into all of our chemical elements because of rotations of the vibration at quantized intervals or units of angular velocity
 - Also check [[TaoTeChing-Ch 1]]
-- It is also to note that there might be layers missing in between due to the limitation of my own knowledge
+- 32.12: The nature of vibration is such that it may be seen as having mathematically strait or narrow steps. These steps may be seen as having boundaries. Within each boundary there are infinite gradations of vibration or color. However, as one approaches a boundary, an effort must be made to cross that boundary. These colors are a simplistic way of expressing the boundary divisions of your density. There is also the time/space analogy which may be seen as the color itself in a modified aspect.
 
 29.12: As the Love creates the vibration— I will make this statement, first. Let me say, I believe that Love creates the vibration in space/time in order to form the photon. Is this correct?
 - **Ra:** I am Ra. This is essentially correct.
