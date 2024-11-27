@@ -1,0 +1,9 @@
+# Fasting
+[[Healer-Patient]]
+
+41.21: You mentioned in the last session that fasting was a method of removing unwanted thought-forms. Can you expand on this process and explain a little more about how this works?
+- **Ra:** I am Ra. This, as all healing techniques, must be used by a conscious being; that is, a being conscious that the ridding of excess and unwanted material from the body complex is the analogy to the ridding of mind or spirit of excess or unwanted material. Thus the one discipline or denial of the unwanted portion as an appropriate part of the self is taken through the tree of mind down through the trunk to subconscious levels where the connection is made and thus the body, mind, and spirit, then in unison, express denial of the excess or unwanted spiritual or mental material as part of the entity.
+- All then falls away and the entity, while understanding, if you will, and appreciating the nature of the rejected material as part of the greater self, nevertheless, through the action of the will purifies and refines the mind/body/spirit complex, bringing into manifestation the desired mind complex or spirit complex attitude.
+
+41.22: Then would this be like a conscious reprogramming of catalyst? For instance, for some entities catalyst is programmed by the higher self to create experiences so that the entity can release itself from unwanted biases. Would this be analogous then to the entity consciously programming this release and using fasting as the method of communication to itself?
+- **Ra:** I am Ra. This is not only correct but may be taken further. The self, if conscious to a great enough extent of the workings of this catalyst and the techniques of programming, may through concentration of the will and the faculty of faith alone cause reprogramming without the analogy of the fasting, the diet, or other analogous body complex disciplines.

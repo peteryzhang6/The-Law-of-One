@@ -1,0 +1,6 @@
+# Mental Illness
+40.15: Does the fact that basic vibration that we experience now is green true color, or fourth density, account for the fact that there are many mental effects upon material objects that are now observable for the first time in a mass way like the bending of metal by mind?
+- **Ra:** I am Ra. This shall be the final query in total of this working. This is not only correct but we suggest you take this concept further and understand the great number of entities with the so-called mental diseases being due to the effect of this green-ray true color upon the mental configurations of those unready mentally to face the self for the first time.
+
+40.16: With respect to what you just said, would then people incarnating here by seniority of vibration who incarnate for the service-to-self path be ones who would have extreme difficulty mentally with this green-ray vibration?
+- **Ra:** I am Ra. This is incorrect. It is rather the numbers who have distracted themselves and failed to prepare for this transition yet who are somewhat susceptible to its influence who may be affected.

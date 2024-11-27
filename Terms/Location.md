@@ -1,0 +1,3 @@
+# Location
+41.1: There is a possibility that we may have to move from this location to a location a thousand or more miles from here in the future. Will this have any effect at all on our contact with Ra?
+- **Ra:** I am Ra. This is not a foolish question. The location is meaningless, for are we not in the creation? However, the place of the working shall be either carefully adjudged by your selves to be of the appropriate vibratory levels or it shall be suggested that the purification of the place be enacted and dedication made through meditation before initial working. This might entail such seemingly mundane chores as the cleansing or painting of surfaces which you may deem to be inappropriately marred.

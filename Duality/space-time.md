@@ -40,5 +40,12 @@ To overcome the restraint of space and time, I believe one should first start wi
 6.9: **Ra:** Do you request space/time present information or space/time continuum information?
 - what is the difference between present information and continuum information?
 
+41.20: Could you tell me the difference between space/time and time/space?
+- **Ra:** I am Ra. Using your words, the difference is that between the visible and invisible or the physical and metaphysical. Using mathematical terms, as does the one you call Larson, the difference is that between s/t and t/s.
 # time/space
 21.7: time/space third density, that is, the so-called inner planes
+
+41.4 & 41.20: the metaphysical
+
+# space/time
+physical??

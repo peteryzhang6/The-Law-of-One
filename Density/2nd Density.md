@@ -13,6 +13,16 @@
 - **The break becomes apparent when the entity perceives other-selves as other-selves and consciously determines to manipulate other-selves for the benefit of the self. This is the beginning of the road of which you speak.**
 
 32.2: The orange ray is that influence or vibratory pattern wherein the mind/body/spirit expresses its power on an individual basis. Thus power over individuals may be seen to be orange ray. This ray has been quite intense among your peoples on an individual basis. You may see in this ray the treating of other-selves as non-entities, slaves, or chattel, thus giving other-selves no status whatever.
+
+41.11: As I remember, the polymorphous dinoflagellate has an iron- rather than a copper-based cell. Could you comment on that?
+- **Ra:** I am Ra. This information is not central. The base of any metabolism, shall we say, is that which may be found in the chemical substances of the neighborhood of origin.
+
+41.12: I was just commenting on this because this indicates that it has the motion of our animal life with copper-based cells yet it has the iron-based cell of plant life indicating a transition from possibly plant to animal life. Am I wrong? My memory is a little fuzzy on this.
+- **Ra:** I am Ra. It is not that you are incorrect but that no conclusions should be drawn from such information. There are several different types of bases for conscious entities not only upon this planetary sphere but to a much greater extent in the forms found on planetary spheres of other sub-Logoi. The chemical vehicle is that which most conveniently houses the consciousness. The functioning of consciousness is the item of interest rather than the chemical makeup of a physical vehicle.
+- We have observed that those whom you call scientists have puzzled over the various differences and possible interrelationships of various stages, types, and conditions of life-forms. This is not fruitful material as it is that which is of a moment’s choice by your sub-Logos.
+
+41.13: Does this polymorphous dinoflagellate then have an orange energy center?
+- **Ra:** I am Ra. This is correct.
 # Difference between 2D and 3D beings
 14.3: The difference between second- and third-density bodily forms would in many cases have been more like one to the other. In the case of your planetary sphere the process was interrupted by those who incarnated here from the planetary sphere you call Mars. They were adjusted by genetic changing and, therefore, there was some difference which was of a very noticeable variety rather than the gradual raising of the bipedal forms upon your second-density level to third-density level. This has nothing to do with the so-called placement of the soul. This has only to do with the circumstances of the influx of those from that culture.
 
