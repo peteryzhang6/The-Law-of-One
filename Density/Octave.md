@@ -1,4 +1,9 @@
 # Octave
+1st to 7th Density together are called an octave.
+- 16.51: The term density is a, what you would call, mathematical one. The closest analogy is that of music, whereby after seven notes on your western type of scale, if you will, the eighth note begins a new octave. Within your great octave of existence which we share with you, there are seven octaves or densities. Within each density there are seven sub-densities. Within each sub-density, seven sub-sub-densities, and so on infinitely.
+
+13.20: All of the octave of your densities would be clearly visible were not the fourth through the seventh freely choosing not to be visible.
+
 40.1: I thought that I would make a statement and let you correct it. I’m trying to make a simple model of the portion of the universe that we find ourselves in. Starting with the Logos, or sub-Logos, our sun, we have white light emanating from this. This is made up of frequencies ranging from the red to the violet. I am assuming that this white light then contains the experiences through all of the densities and as we go into the eighth density we go into a black hole which emerges on the other side as another Logos or sun and starts another octave of experience. Can you comment on this part of my statement?
 - **Ra:** I am Ra. We can comment upon this statement to an extent. The concept of the white light of the sub-Logos being prismatically separated and later, at the final chapter, being absorbed again is basically correct. However, there are subtleties involved which are more than semantic.
 - The white light which emanates and forms the articulated sub-Logos has its beginning in what may be metaphysically seen as darkness. The light comes into that darkness and transfigures it, causing the chaos to organize and become reflective or radiant. Thus the dimensions come into being.

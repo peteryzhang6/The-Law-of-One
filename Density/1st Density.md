@@ -1,7 +1,7 @@
 # 1st Density
 <- [[8th Density]] | [[2nd Density]] ->
 
-- Red ray energy
+[[Red Ray]] Energy
 
 41.7: What I want to do now is investigate, as the first density is formed, what happens and how energy centers are first formed in beings. Let me first ask you, does it make any sense to ask you if the sun itself has a density, or is it all densities?
 - **Ra:** I am Ra. The sub-Logos is of the entire octave and is not that entity which experiences the learning/teachings of entities such as yourselves.
