@@ -1,4 +1,8 @@
 # Logos
+Check [[Law of Love]]
+
+15.21: Love
+
 29.4: What I’m saying is there are roughly 250 billion stars or suns something like ours in this major galaxy. Are they all part of the same sub-Logos?
 - They are all part of the same Logos. Your solar system, as you would call it, is a manifestation somewhat and slightly different due to the presence of a sub-Logos.
 

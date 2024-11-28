@@ -5,7 +5,7 @@ These are last distortions to unite when a being raises from 6D to 7D or the fir
 
 - [[Law of Free Will]]
 - [[Finity]]
-- [[STO-STS|Service]]
+- [[STO-STS|Service]] 14.18:  one of the primal distortion of the Law of One
 - [[Learn-Teach]]
 - [[Healer-Patient]]
 - I would also consider the 7 densities as primal distortion due to the mention of (9.10) Laws of Love

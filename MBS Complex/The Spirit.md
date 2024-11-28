@@ -4,14 +4,7 @@ One part of the [[Mind-Body-Spirit Complex]]
 30.2: This spirit complex is the channel whereby the inpourings from all of the various universal, planetary, and personal inpourings may be funneled into the roots of consciousness and whereby consciousness may be funneled to the gateway of intelligent infinity through the balanced intelligent energy of body and mind.
 
 *Personal POV:* The Spirit can be seen as the energy that causes our mind to seek and give things and experiences meanings. Ultimately we all share one spirit - The Spirit of the Infinite Creator, yet we are able to derive different meanings in the same object can be a result of unbalanced intelligent energy of body and mind or simply due to the different local configurations of bodies and minds (DNA?) to manifest different spirit/meaning. 
-# Healing
-4.17 The third area is the spiritual, and in this area the first two disciplines are connected through the attainment of contact with intelligent infinity.
-- 4.18: To speak to the third: imagine, if you will, the function of the magnet. The magnet has two poles. One reaches up. The other goes down. The function of the spirit is to integrate the up-reaching yearning of the mind/body energy with the down-pouring and streaming of infinite intelligence. This is a brief explication of the third area.
-## Discipline of the Spirit
-6.1 The third area is the spiritual complex which embodies the fields of force and consciousness which are the least distorted of your mind/body/spirit complex. The exploration and balancing of the spirit complex is indeed the longest and most subtle part of your learn/teaching. We have considered the mind as a tree. The mind controls the body. With the mind single-pointed, balanced, and aware, the body comfortable in whatever biases and distortions make it appropriately balanced for that instrument, the instrument is then ready to proceed with the great work.  
-  
-That is the work of wind and fire. The spiritual body energy field is a pathway, or channel. When body and mind are receptive and open, then the spirit can become a functioning shuttle or communicator from the entity’s individual energy of will upwards, and from the streamings of the creative fire and wind downwards.  
-  
-The healing ability, like all other, what this instrument would call paranormal abilities, is effected by the opening of a pathway or shuttle into intelligent infinity. There are many upon your plane who have a random hole or gateway in their spirit energy field, sometimes created by the ingestion of chemicals such as, what this instrument would call [[LSD]], who are able, randomly and without control, to tap into energy sources. They may or may not be entities who wish to serve. The purpose of carefully and consciously opening this channel is to serve in a more dependable way, in a more commonplace or usual way, as seen by the distortion complex of the healer. To others there may appear to be miracles. To the one who has carefully opened the door to intelligent infinity this is ordinary; this is commonplace; this is as it should be. The life experience becomes somewhat transformed and the great work goes on.  
-  
-At this time we feel these exercises suffice for your beginning. We will, at a future time, when you feel you have accomplished that which is set before you, begin to guide you into a more precise understanding of the functions and uses of this gateway in the experience of healing.
+
+---
+
+[[Healing of the Spirit]]
