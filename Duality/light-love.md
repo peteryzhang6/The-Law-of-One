@@ -12,10 +12,6 @@ That each one of us is a entity of light/love and love/light:
 - light/love - we use the outward expression of action and of speech to impact our surroundings, then we absorb the effects of our impact through our eyes, ears, nose, tastes, and touches.
 - love/light - we use the inward expression of seeing, hearing, smelling, tasting, and feelings to pull the effects of our surrounding into ourselves, then we express these effects through our actions and speech to our surroundings.
 
-The unity of the love and the light within each of us can be seen in DaoTeChing's term as WuWei (无为).
-- to absorb the light while output the love within a moment
-- to output the light while absorb the love within a moment
-
 15.22: There is the same difference between love/light and light/love as there is between teach/learning and learn/teaching. Love/light is the enabler, the power, the energy giver. Light/love is the manifestation which occurs when light has been impressed with love.
 - Check [[Learn-Teach]]
 
