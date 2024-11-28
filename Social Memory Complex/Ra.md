@@ -16,6 +16,14 @@
 14.18: I speak for the social memory complex termed Ra. We came among you to aid you. Our efforts in service were perverted. Our desire then is to eliminate as far as possible the distortions caused by those misreading our information and guidance. The general cause of service such as the Confederation offers is that of the primal distortion of the Law of One, which is [[STO-STS|service]]. [[The Infinite Creator|The One Being]] of the creation is like unto a body, if you will accept this third-density analogy. Would we ignore a pain in the leg? A bruise upon the skin? A cut which is festering? No. There is no ignoring a call. We, the entities of sorrow, choose as our service the attempt to heal the sorrow which we are calling analogous to the pains of a physical body complex distortion.
 
 22.26: We remind you that we are one of the naïve members of that Confederation and are still attempting to recoup the damage for which we feel responsibility. It is our duty as well as honor to continue with your peoples, therefore, until all traces of the distortions of our teach/learnings have been embraced by their opposite distortions, and balance achieved.
+
+48.3: If you, Ra, as an individualized entity were incarnate on Earth now with full awareness and memory of what you know now, what would be your objective at this time on Earth as far as activities are concerned?
+
+**Ra:** I am Ra. The query suggests that which has been learned to be impractical. However, were we to again be naïve enough to think that our physical presence was any more effective than that love/light we send your peoples and the treasure of this contact, we would do as we did do. We would be, and we would offer our selves as teach/learners.
+
+48.4: Knowing what you know now about our planetary condition and methods of communication, etc., if you, yourself as an individual had gone through the process of incarnation here as a Wanderer and now have memory of a sufficient way to have the objective that you just stated, what mechanisms would you seek out for the process of teach/learning in our present state of communication?
+
+**Ra:** I am Ra. My brother, we perceive you have made certain unspoken connections. We acknowledge these and for this reason cannot infringe upon your confusion.
 # Channeling Ra
 1.0: We will therefore describe the type of vibration which is being sent. The instrument will find us entering the energy field at a slight angle towards the back of the top of the head in a narrow but strong area of intensity.
 

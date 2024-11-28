@@ -23,3 +23,15 @@
 43.23: Then, there is a— In third density the fueling of our bodily complex is not only simply fuels the complex but but gives us opportunities to learn service. In fourth density it not only fuels the complex but gives us opportunities to learn patience. In fifth density it fuels the complex but does it teach?
 
 **Ra:** I am Ra. In fifth density it is comfort, for those of like mind gather together to share in this broth, thus becoming one in light and wisdom while joining hearts and hands in physical activity. Thus in this density it becomes a solace rather than a catalyst for learning.
+
+47.5: Then at fourth-density graduation into fifth is there anything like the percentages you gave for third-density graduation into fourth for polarization?
+
+**Ra:** I am Ra. There are, in your modes of thinking, responses we can make, which we shall make. However, the important point is that the graduations from density to density do occur. The positive/negative polarity is a thing which will, at the sixth level, simply become history. Therefore, we speak in an illusory time continuum when we discuss statistics of positive versus negative harvest into fifth. A large percentage of fourth-density negative entities continue the negative path from fourth- to fifth-density experience, for without wisdom the compassion and desire to aid other-self is not extremely well-informed. Thus though one loses approximately two percent moving from negative to positive during the fourth-density experience we find approximately eight percent of graduations into fifth density those of the negative.
+
+47.6: Well, what I was actually asking was if 50% is required for graduation from third to fourth in the positive sense, 95% is required for graduation in the negative sense, does this have to more closely approach 100% in both cases for graduation from fourth to fifth? Does an entity have to be 99% polarized for negative and maybe 80% polarized for positive graduation from fourth to fifth?
+
+**Ra:** I am Ra. We perceive the query now.  
+  
+To give this in your terms is misleading for there are, shall we say, visual aids or training aids available in fourth density which automatically aid the entity in polarization while cutting down extremely upon the quick effect of catalyst. Thus the density above yours must take up more space/time.  
+  
+The percentage of service to others of positively oriented entities will harmoniously approach 98% in intention. The qualifications for fifth density, however, involve understanding. This then, becomes the primary qualification for graduation from fourth to fifth density. To achieve this graduation the entity must be able to understand the actions, the movements, and the dance. There is no percentage describable which measures this understanding. It is a measure of efficiency of perception. It may be measured by light. The ability to love, accept, and use a certain intensity of light thus creates the requirement for both positive and negative fourth to fifth harvesting.

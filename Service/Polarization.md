@@ -58,3 +58,15 @@ Thus Ra states that the path of STO will be one of that infinite as one refines 
 - 19.19: It then seems that there is an extreme potential in this polarization the same as there is in— to make an analogy, using electricity: We have a positive and negative pole. The more you build the charge on either of these, the greater the potential difference and the greater the ability to do work, as we call it, in the physical.
 
 21.20: What is necessary to balance is opportunity. When there is ignorance, there is no opportunity. When there exists a potential, then each opportunity shall be balanced, this balancing caused by not only the positive and negative orientations of those offering aid but also the orientation of those requesting aid.
+
+50.8: How does the ability to hold visual images in mind allow the adept to do polarization in consciousness without external action?
+
+**Ra:** I am Ra. This is not a simple query, for the adept is one which will go beyond the green ray which signals entry into harvestability. The adept will not simply be tapping into intelligent energy as a means of readiness for harvest but tapping into both intelligent energy and intelligent infinity for the purpose of transmuting planetary harvestability and consciousness.  
+  
+The means of this working lie within. The key is first, silence, and secondly, singleness of thought. Thusly a visualization which can be held steady to the inward eye for several of your minutes, as you measure time, will signal the adept’s increase in singleness of thought. This singleness of thought then can be used by the positive adept to work in group ritual visualizations for the raising of positive energy, by negative adepts for the increase in personal power.
+
+50.9: Can you tell me how the adept, then, after being able to hold the image for several minutes, what he does then to affect planetary consciousness or increase positive polarity? I still don’t quite understand about this.
+
+**Ra:** I am Ra. When the positive adept touches intelligent infinity from within, this is the most powerful of connections for it is the connection of the whole mind/body/spirit complex microcosm with the macrocosm. This connection enables the, shall we say, green-ray true color in time/space to manifest in your time/space. In green ray thoughts are beings. In your illusion this is normally not so.  
+  
+The adepts then become living channels for love and light and are able to channel this radiance directly into the planetary web of energy nexi. The ritual will always end by the grounding of this energy in praise and thanksgiving and the release of this energy into the planetary whole.

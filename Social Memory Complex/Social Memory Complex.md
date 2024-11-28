@@ -8,3 +8,11 @@
 45.11: Can you tell me the purpose or philosophy behind the fourth-, fifth-, and sixth-density positive and negative social memory complexes?
 
 **Ra:** I am Ra. The basic purpose of a social memory complex is that of evolution. Beyond a certain point the evolution of spirit is quite dependent upon the understanding of self and other-self as Creator. This constitutes the basis for social complexes. When brought to maturity, they become social memory complexes. The fourth density and sixth density find these quite necessary. The fifth positive uses social memory in attaining wisdom, though this is done individually. In fifth negative much is done without aid of others. This is the last query as this instrument needs to be protected from depletion. Are there brief queries before we close?
+
+47.2: The question that I was trying to ask at the end of the last session was: Of what value to evolution or experience in the Creator knowing himself are the positive and negative social memory complexes that form starting in fourth density, and why was this planned by the Logos?
+
+**Ra:** I am Ra. There are inherent incorrectnesses in your query. However, we may answer the main point of it.  
+  
+The incorrectness lies in the consideration that social memory complexes were planned by the Logos or sub-Logos. This is incorrect, as the unity of the Creator exists within the smallest portion of any material created by Love, much less in a self-aware being.  
+  
+However, the distortion of free will causes the social memory complex to appear as a possibility at a certain stage of evolution of mind. The purpose, or consideration which causes entities to form such complexes, of these social memory complexes, is a very simple extension of the basic distortion towards the Creator’s knowing of Itself, for when a group of mind/body/spirits become able to form a social memory complex, all experience of each entity is available to the whole of the complex. Thus the Creator knows more of Its creation in each entity partaking of this communion of entities.

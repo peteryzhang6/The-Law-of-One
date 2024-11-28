@@ -32,7 +32,7 @@ A primal distortion in Law of One.
 
 17.18:
 - Those who heal may be of any density which has the consciousness of the spirit. This includes third, fourth, fifth, sixth, and seventh. The third density can be one in which healing takes place just as the others. However, there is more illusory material to understand, to balance, to accept, and to move forward from.
-- The gate to [[intelligent infinity]] can only be opened when an understanding of the instreamings of intelligent energy are opened unto the healer. These are the so-called Natural Laws of your local space/time continuum and its web of electromagnetic sources or nexi of instreaming energy.
+- The gate to [[Intelligent Infinity]] can only be opened when an understanding of the instreamings of intelligent energy are opened unto the healer. These are the so-called Natural Laws of your local space/time continuum and its web of electromagnetic sources or nexi of instreaming energy.
 - Know then, first, the mind and the body. Then as the spirit is integrated and synthesized, those are harmonized into a mind/body/spirit complex which can move among the dimensions and which can open the gateway to intelligent infinity, thus healing self by light and sharing that light with others.
 - True healing is simply the radiance of the self causing an environment in which a catalyst may occur which initiates the recognition of self, by self, of the self-healing properties of the self.
 

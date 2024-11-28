@@ -1,0 +1,4 @@
+# Crystallized Entity
+47.7: Can you define what you mean by a “crystallized entity?”
+
+**Ra:** I am Ra. We have used this particular term because it has a fairly precise meaning in your language. When a crystalline structure is formed of your physical material the elements present in each molecule are bonded in a regularized fashion with the elements in each other molecule. Thus the structure is regular and, when fully and perfectly crystallized, has certain properties. It will not splinter or break; it is very strong without effort; and it is radiant, traducing light into a beautiful refraction giving pleasure of the eye to many.

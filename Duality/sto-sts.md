@@ -19,62 +19,22 @@ aliases:
 45.10: Why is the left ear of the service-to-self contact and the right service-to-others?
 
 **Ra:** I am Ra. The nature of your physical vehicle is that there is a magnetic field positive and negative in complex patterns about the shells of your vehicle. The left portion of the head region of most entities is, upon the time/space continuum level, of a negative polarity.
+
+47.3: We chose the values of— or you were given the values of better than 50% service to others for fourth-density positive and better than 95% service to self for fourth-density negative social memory complexes. Do these two values correspond to the same rate, shall I say, of vibration?
+
+**Ra:** I am Ra. I perceive you have difficulty in expressing your query. We shall respond in an attempt to clarify your query.  
+  
+The vibratory rates are not to be understood as the same in positive and negative orientations. They are to be understood as having the power to accept and work with intelligent infinity to a certain degree or intensity. Due to the fact that the primary color, shall we say, or energy blue is missing from the negatively oriented system of power, the green/blue vibratory energies are not seen in the vibratory schedules or patterns of negative fourth and fifth rates of vibration.  
+  
+The positive, upon the other hand, shall we say, has the full spectrum of true-color time/space vibratory patterns and thus contains a variant vibratory pattern or schedule. Each is capable of doing fourth-density work. This is the criterion for harvest.
+
+47.4: Did you say that blue was missing from fourth-density negative?
+
+**Ra:** I am Ra. Let us clarify further. As we have previously stated, all beings have the potential for all possible vibratory rates. Thus the potential of the green and blue energy center activation is, of course, precisely where it must be in a creation of Love. However, the negatively polarized entity will have achieved harvest due to extremely efficient use of red and yellow/orange, moving directly to the gateway indigo bringing through this intelligent energy channel the instreamings of intelligent infinity.
 # Bias toward which path
 19.17: We can speak only in metaphor. Some love the light. Some love the darkness. It is a matter of the unique and infinitely various Creator choosing and playing among its experiences as a child upon a picnic. Some enjoy the picnic and find the sun beautiful, the food delicious, the games refreshing, and glow with the joy of creation. Some find the night delicious, their picnic being pain, difficulty, sufferings of others, and the examination of the perversities of nature. These enjoy a different picnic.
 - All these experiences are available. It is free will of each entity which chooses the form of play, the form of pleasure.
-# Service to Others (STO)
-The STO will need STS when the self is in danger as STS is best known for its ability to preserve the self.
 
-7.15: However, service to others results in service to self, thus preserving and further harmonizing the distortions of those entities seeking intelligent infinity through these disciplines.
-
-15.7: **The greatest service that our population on this planet(Earth) can perform individually** - There is but one service. The Law is One. The offering of self to Creator is the greatest service, the unity, the fountainhead. The entity who seeks the One Creator is with infinite intelligence. From this seeking, from this offering, a great multiplicity of opportunities will evolve depending upon the mind/body/spirit complexes’ distortions with regard to the various illusory aspects or energy centers of the various complexes of your illusion. Thus, some become healers, some workers, some teachers, and so forth.
-
-17.30: are there best ways of being of service to others?
-- The best way of service to others is the constant attempt to seek to share the love of the Creator as it is known to the inner self. This involves self knowledge and the ability to open the self to the other-self without hesitation. This involves, shall we say, radiating that which is the essence or the heart of the mind/body/spirit complex.  
-- Speaking to the intention of your question, the best way for each seeker in third density to be of service to others is unique to that mind/body/spirit complex. This means that the mind/body/spirit complex must then seek within itself the intelligence of its own [[discernment]] as to the way it may best serve other-selves. This will be different for each. There is no best. There is no generalization. Nothing is known.
-
-32.1: Thus we see protection being very simple. Give thanksgiving for each moment. See the self and the other-self as Creator. Open the heart. Always know the light and praise it. This is all the protection necessary.
-- 33.2: Harmony, thanksgiving, and praise of opportunities and of the Creator: these are your protection.
-# Service to self (STS)
-The STS needs STO when the providing source is in danger as STO is best known for its ability to preserve the outer source.
-
-**7.14:** Consider, if you will, a simple example of intentions which are bad/good. This example is Adolf. This is your vibratory sound complex. The intention is to presumably unify by choosing the distortion complex called elite from a social memory complex and then enslaving, by various effects, those who are seen as the distortion of not-elite. There is then the concept of taking the social memory complex thus weeded and adding it to a distortion thought of by the so-called Orion group as an empire. The problem facing them is that they face a great deal of random energy released by the concept of separation. This causes them to be vulnerable as the distortions amongst their own members are not harmonized.
-
-11.31: To serve the self is to serve all. The service of the self, when seen in this perspective, requires an ever-expanding use of the energies of others for manipulation to the benefit of the self with distortion towards power.
-- I feel that "power" in our current day society has more of a negative sense of use. Thus in equivalent to power is one of light in STO perspective.
-# Examples of STS
-
->11.10: All of the entities (mentioned below) were aware, through memory, of Atlantean understandings having to do with the use of the various centers of mind/body/spirit complex energy influx in attaining the gateway to intelligent infinity.
-- [[Taras Bulba]]
-- [[Genghis Khan]]
-- [[Rasputin]]
-- [[Heinrich Himmler]]
-
-11.11: The first two entities mentioned made little use of these abilities consciously. However, they were bent single-mindedly upon service to self, sparing no efforts in personal discipline to double, re-double and so empower this gateway. The third was a conscious adept and also spared no effort in the pursuit of service to self.
-
-11.12: These entities are in the dimension known to you as fourth. Therefore the space/time continua are not compatible. An approximation of the space/time locus of each would net no actual understanding. Each chose a fourth-density planet which was dedicated to the pursuit of the understanding of the Law of One through service to self, one in what you know as the Orion group, one in what you know as Cassiopeia, one in what you know as Southern Cross; however, these loci are not satisfactory. We do not have vocabulary for the geometric calculations necessary for transfer of this understanding to you.
-
-36.14: We remind you that the negative path is one of separation. What is the first separation: the self from the self. The one known as Himmler did not choose to use its abilities of will and polarization to seek guidance from any source but its conscious drives, self-chosen in the life experience and nourished by previous biases created in other life experiences.
-
-Also Check [[Orion]] - STS Social Memory Complex
-
-38.14: All right, I’ll just ask this one. I have here that— could you give me some idea of what conditions are like on a fourth-density negative or self-service planet? Can you do this?
-- **Ra:** I am Ra. The graduation into fourth-density negative is achieved by those beings who have consciously contacted intelligent infinity through the use of red, orange, and yellow rays of energy. Therefore, the planetary conditions of fourth-density negative include the constant alignment and realignment of entities in efforts to form the dominant patterns of combined energy.
-- The early fourth density is one of the most intensive struggle. When the order of authority has been established and all have fought until convinced that each is in the proper placement for power structure, the social memory complex begins. Always the fourth-density effects of telepathy and the transparency of thought are attempted to be used for the sake of those at the apex of the power structure.
-- This, as you may see, is often quite damaging to the further polarization of fourth-density negative entities, for the further negative polarization can only come about through group effort. As the fourth-density entities manage to combine, they then polarize through such services to self as those offered by the crusaders of Orion.
-# How should STO treat STS
-44.10: Can you suggest a method whereby we might, shall I say, nullify the effect of the influence that we don’t want from a negative source?
-
-**Ra:** I am Ra. There are various methods. We shall offer the most available or simple. To share the difficult contact with the other-selves associated with this working and to meditate in love for these senders of images and light for self and other-selves is the most available means of nullifying the effects of such occurrences. To downgrade these experiences by the use of intellect or the disciplines of will is to invite the prolonging of the effects. Far better then to share in trust such experiences and join hearts and souls in love and light with compassion for the sender and armor for the self.
-
-Like Ra said, with Love and Light.
-
-*Thoughts:*
-
-It is difficult to treat STSs with Love and Light as an initiate of STOs, but to understand and in knowing of that STS will eventually end in 6D and turn to 6D STO: for those (STSs) who use me to their own gain, I worry not. For I know the road they walk is one of dead ends, of death For I have travelled that path many times. So I help them and accelerate their journey that has an end. I shall help them to progress their journey and fast shall I accelerate their journey that within moments do they reach their destination. Oh how much do they celebrate at me surrendering at their power, but oh so foolishly do they believe that the road they walk is one to eternal life. I wait, wait till the day they reach their final destination. And it is called "final destination" for a reason, the "final" is the end of their road, of their life, of all their "achievements" they so dearly hold on to. It is nothing but an illusion, for they chose to walk the road of illusion and thus do they met the end of illusion - The Final, the Death, for Final Death is also an merely illusion that exists in the all wisdom and love of Infinity. And then do I see they turn and walk the path of truth, the one that I never left and neither did they. LOL #infinity #unity #foreverness
-- To walk the the path of "falseness" and return to the path of Truth is the display of the power of infinity intelligence to create a plane of existence where the distortion of "falseness" exists and allow the beings to experience such "falseness" through the veil of forgetting of one self's perfection and walk the journey to return to source or to eternity.
-	- In order words, this can be understood in Christian terms of "why did God create hell or evil?" For God is all powerful and all knowing, thus for a being born in heaven and to further understanding its own perfection within the universe, did God create "hell" or "imperfection" and through the Law of Free Will, the being chooses to put itself through the illusion/distortion of "hell", of "imperfection" to better understand the perfection or God. #Christianity
-	- Because of the Law of Free Will and the Veil of Forgetfulness, one may get lost in the illusion and distortion and misses the time to return to heaven and gets trapped in the illusion of self or the self distortion. Thus further manifests and strengthens the illusion, thus the heavenly beings, or elders come into the illusion to "free" the "trapped" beings, thus causes the Messiah/savior Complex to the beings coming in due the veil of forgetfulness and gets caught up in the maelstrom of the karma of the trapped beings. 
-	- The desire of beings to "save" the trapped ones within the illusion is also a display of the infinity intelligence to create a plane of existence where the distortion of "saving", "freeing", and/or "healing" other selves exists. Although All is One and One is All at all time and space, the desire to "save" or "healing" can be seen as an desire or experiment to accelerate the progression of beings from 1D to 7D. Or an desire to increase the frequency of vibration. A worldly example can be seen as the desire to turn up the volume to music to further experience the joy within the music, yet the volume has a upper limit to the one experiencing as too high of a volume can cause permanent damage to the ears of one. Thus the same can also be applied back to the desire/distortion of "healing/patient". #healing-patient A common saying of "experiment and play around (with the object) and push the boundaries and limits of the understanding of oneself."
-	- The gap between the healing and patient creates the illusion of time and space. As one closes this gap or unites and balances the pain and joy within oneself, one will bring oneself out of the illusion of time and space (As Ra said that their polarity is united thus they are not of time and space). And as one gets to perfect unity of oneself, one will start to move out of the cycle of life and death (As Ra said the Law of One reaches for the Law of Foreverness; 6D to 7D).
-	- The act of piercing the veil of forgetfulness is an act of one using its own conscious to reflect upon the past/future experiences and to connect them to create a full circle, like the symbol [[Ouroboros]]. Then as one continues to reflect upon its experiences and unite the pain and joy, the positive polarity with the negative polarity, one's consciousness will start to grow and eventually allows oneself to piercing the veil and remember the perfection within oneself. Like the symbol of the sun ☉. The dot can be seen as the first circle created or the birth of ouroboros, and as it grows, it will reach the outer circle, thus the full piercing of the veil.
+---
+- [[Service to Other]]
+- [[Service to Self]]

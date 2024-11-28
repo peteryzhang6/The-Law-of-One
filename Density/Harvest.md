@@ -40,3 +40,18 @@ Check [[STO-STS]] and [[Polarization]]
 34.16: Would the red ray, an intense red ray, then be used as an index for seniority, the seniority system of incarnation, as well as the intense violet ray?
 - **Ra:** I am Ra. This is partially correct. In the graduation or harvesting to fourth-density positive, the red ray is seen only as that, which being activated, is the basis for all that occurs in vibratory levels, the sum of this being violet-ray energy.
 - This violet ray is the only consideration for fourth-density positive. In assessing the harvestable fourth-density negative, the intensity of the red as well as the orange and the yellow rays is looked upon quite carefully as a great deal of stamina and energy of this type is necessary for the negative progression, it being extremely difficult to open the gateway to intelligent infinity from the solar plexus center. This is necessary for harvest in fourth-density negative.
+
+48.6: Can you tell me how positive and negative polarizations in fourth and fifth density are used to cause work in consciousness?
+
+**Ra:** I am Ra. There is very little work in consciousness in fourth and in fifth densities compared to the work done in third density. The work that is accomplished in positive fourth is that work whereby the positive social memory complex, having, through slow stages, harmoniously integrated itself, goes forth to aid those of less positive orientation which seek their aid. Thus their service is their work and through this dynamic between the societal self and the other-self which is the object of love, greater and greater intensities of understanding or compassion are attained. This intensity continues until the appropriate intensity of the light may be welcomed. This is fourth-density harvest.  
+  
+Within fourth-density positive there are minor amounts of catalyst of a spiritual and mental complex distortion. This occurs during the process of harmonizing to the extent of forming the social memory complex. This causes some small catalyst and work to occur, but the great work of fourth density lies in the contact betwixt the societal self and less polarized other-self.  
+  
+In fourth-density negative much work is accomplished during the fighting for position which precedes the period of the social memory complex. There are opportunities to polarize negatively by control of other-selves. During the social memory complex period of fourth-density negative the situation is the same. The work takes place through the societal reaching out to less polarized other-self in order to aid in negative polarization.  
+  
+In fifth-density positive and negative the concept of work done through a potential difference is not particularly helpful as fifth-density entities are, again, intensifying rather than potentiating.  
+  
+In positive, the fifth-density complex uses sixth-density teach/learners to study the more illuminated understandings of unity thus becoming more and more wise. Fifth-density positive social memory complexes often will choose to divide their service to others in two ways: first, the beaming of light to creation; second, the sending of groups to be of aid as instruments of light such as those whom you’re familiar with through channels.  
+  
+In fifth-density negative, service to self has become extremely intense and the self has shrunk or compacted so that the dialogues with the teach/learners are used exclusively in order to intensify wisdom. There are very, very few fifth-density negative Wanderers for they fear the forgetting. There are very, very few fifth-density Orion members for they do not any longer perceive any virtue in other-selves.
+

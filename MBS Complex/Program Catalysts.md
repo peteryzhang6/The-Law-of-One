@@ -1,0 +1,14 @@
+# Program Catalysts
+50.4-5: Could you give an example of how an entity sets up a condition for attracting a particular experiential catalyst and how that catalyst then is provided or is learned?
+
+**Ra:** I am Ra. We paused to scan this instrument’s consciousness for permission to use its experiential catalyst as example. We may proceed.  
+  
+This is one instance and extrapolation may be made to other entities which are aware of the process of evolution. This entity chose, before incarnation, the means whereby catalyst had great probability of being obtained. This entity desired the process of expressing love and light without expecting any return. This instrument programmed also to endeavor to accomplish spiritual work and to comfort itself with companionship in the doing of this work.  
+  
+Agreements were made prior to incarnation; the first, with the so-called parents and siblings of this entity. This provided the experiential catalyst for the situation of offering radiance of being without expectation of return. The second program involved agreements with several entities. These agreements provided and will provide, in your time/space and space/time continuum, opportunities for the experiential catalyst of work and comradeship.  
+  
+There are events which were part of a program for this entity only in that they were possibility/probability vortices having to do with your societal culture. These events include the nature of the living or standard of living, the type of relationships entered into in your legal framework, and the social climate during the incarnation. The incarnation was understood to be one which would take place at harvest.  
+  
+These givens, shall we say, apply to millions of your peoples, those aware of evolution and desirous in the very extreme of attaining the heart of love and the radiance which gives understanding. No matter what the lessons programmed, they have to do with other-selves, not with events. They have to do with giving, not receiving, for the lessons of love are of this nature both for positive and negative. Those negatively harvestable will be found at this time endeavoring to share their love of self.  
+  
+There are those whose lessons are more random due to their present inability to comprehend the nature and mechanism of the evolution of mind, body, and spirit. Of these we may say that the process is guarded by those who never cease their watchful expectation of being of service. There is no entity without help, either through self-awareness of the unity of creation or through guardians of the self which protect the less sophisticated mind/body/spirit from any permanent separation from unity while the lessons of your density continue.
