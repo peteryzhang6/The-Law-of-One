@@ -1,0 +1,8 @@
+# George Patton
+34.17: Is it possible for you to use as an example our General Patton and tell me the effect that war had on him in his development?
+- **Ra:** I am Ra. This will be the last full question of this working. The one of whom you speak, known as George, was one in whom the programming of previous incarnations had created a pattern or inertia which was irresistible in its incarnation in your time/space. This entity was of a strong yellow-ray activation with frequent green-ray openings and occasional blue-ray openings. However, it did not find itself able to break the mold of previous traumatic experiences of a bellicose nature.
+- This entity polarized somewhat towards the positive in its incarnation due to its singleness of belief in truth and beauty. This entity was quite sensitive. It felt a great honor/duty to the preservation of that which was felt by the entity to be true, beautiful, and in need of defense. This entity perceived itself as a gallant figure. It polarized somewhat towards the negative in its lack of understanding the green ray it carried with it, rejecting the forgiveness principle which is implicit in universal love.
+- The sum total of this incarnation vibrationally was a slight increase in positive polarity but a decrease in harvestability due to the rejection of the Law or Way of Responsibility; that is, seeing universal love, yet still it fought on.
+
+34.18: Do we have enough time for me to ask if the death, almost immediately after the cessation of the war of this entity— could that have been so that it could be immediately reincarnated to possibly make harvest?
+- **Ra:** I am Ra. This is precisely correct.

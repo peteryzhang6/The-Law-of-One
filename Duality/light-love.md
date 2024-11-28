@@ -19,6 +19,9 @@ The unity of the love and the light within each of us can be seen in DaoTeChing'
 15.22: There is the same difference between love/light and light/love as there is between teach/learning and learn/teaching. Love/light is the enabler, the power, the energy giver. Light/love is the manifestation which occurs when light has been impressed with love.
 - Check [[Learn-Teach]]
 
+With the understanding from [[Space-Time]] that space/time is the physical manifestation and time/space is the metaphysical manifestation, we can assume that
+- light/love is the physical manifestation
+- love/light is the metaphysical manifestation
 # light/love
 29.16: Can you tell me how the gravity comes about?
 - **Ra:** I am Ra. This that you speak of as [[gravity]] may be seen as the pressing towards the inner light/love, the seeking towards the spiral line of light which progresses towards the Creator. This is a manifestation of a spiritual event or condition of livingness.

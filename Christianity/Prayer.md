@@ -20,3 +20,7 @@ If one wishes to strengthen its prayer, then one must maintain a fully focused c
 10.13: The call begins with one. This call is equal to infinity and is not, as you would say, counted. It is the cornerstone. The second call is added. The third call empowers or doubles the second, and so forth, each additional caller doubling or granting power to all the preceding call. Thus, the call of many of your peoples is many, many-powered and overwhelmingly heard to the infinite reaches of the One Creation.
 
 14.24: Moreover, those who were not calling previously may, with great trauma, discover the answers to the call nearly simultaneously with their late call. There is no time/space in call.
+
+43.30: You stated that the key to strengthening the will is concentration. Can you tell me the relative importance of the following aids to concentration? I have listed: silence, temperature control, comfort of body, screening as a Faraday cage would screen electromagnetic radiation, visible light screening, and a constant smell such as the use of incense for strengthening your concentration in meditation. In other words, an isolation-type of situation. You mentioned that this was one of the functions of the pyramid.
+
+**Ra:** I am Ra. The analogies of body complex to mind and spirit complex activities have been discussed previously. You may consider all of these aforementioned aids as those helpful to the stimulation of that which in actuality aids concentration, that being the will of the entity. This free will may be focused at any object or goal.

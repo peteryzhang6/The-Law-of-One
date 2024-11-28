@@ -1,0 +1,9 @@
+# The Sun
+Our primary energy source.
+
+41.4: Will you give me a description of the sun, of our sun?
+- **Ra:** I am Ra. This is a query which is not easily answered in your language, for the sun has various aspects in relation to intelligent infinity, to intelligent energy, and to each density of each planet, as you call these spheres. Moreover, these differences extend into the metaphysical or time/space part of your creation.
+- In relationship to intelligent infinity, the sun body is, equally with all parts of the infinite creation, part of that infinity.
+- In relation to the potentiated intelligent infinity which makes use of intelligent energy, it is the offspring, shall we say, of the Logos for a much larger number of sub-Logoi. The relationship is hierarchical in that the sub-Logos uses the intelligent energy in ways set forth by the Logos and uses its free will to co-create the, shall we say, full nuances of your densities as you experience them.
+- In relationship to the densities, the sun body may physically, as you would say, be seen to be a large body of gaseous elements undergoing the processes of fusion and radiating heat and light.
+- Metaphysically, the sun achieves a meaning to fourth through seventh density according to the growing abilities of entities in these densities to grasp the living creation and co-entity, or other-self, nature of this sun body. Thus by the sixth density the sun may be visited and inhabited by those dwelling in time/space and may even be partially created from moment to moment by the processes of sixth-density entities in their evolution.

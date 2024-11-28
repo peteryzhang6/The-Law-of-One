@@ -1,0 +1,43 @@
+# Maldek
+6.10: At one time/space, in what is your past, there was a population of third-density beings upon a planet which dwelt within your solar system. There are various names by which this planet has been named. The vibratory sound complex most usually used by your peoples is Maldek. These entities, destroying their planetary sphere, thus were forced to find room for themselves upon this third density which is the only one in your solar system at their time/space present which was hospitable and capable of offering the lessons necessary to decrease their mind/body/spirit distortions with respect to the Law of One.
+# 6.11
+**Questioner:** How did they come here?
+
+**Ra:** They came through the process of harvest and were incarnated through the processes of incarnation from your higher spheres within this density.
+# 6.12
+**Questioner:** How long ago did this happen in our years?
+
+This occurred approximately five hundred thousand [500,000] of your years ago.
+# 6.13
+**Questioner:** Thanks. Is all of the Earth’s population then, human population of the earth, are all of them originally from Maldek?
+
+**Ra:** I am Ra. This is a new line of questioning, and deserves a place of its own. The ones who were harvested to your sphere from the sphere known before its dissolution as other names, but to your peoples as Maldek, incarnated, many within your Earth’s surface rather than upon it. The population of your planet contains many various groups harvested from other second-dimension and cycled third-dimension spheres. You are not all one race or background of beginning. The experience you share is unique to this time/space continuum.
+
+11.3: The planetary social memory complex, Maldek, had in common with your own sphere the situation of a mixture of energy direction. Thus it, though unknown, would most probably have been a mixed harvest — a few moving to fourth density, a few moving towards fourth density in service to self, the great majority repeating third density. This is approximate due to the fact that parallel possibility/probability vortices cease when action occurs and new probability/possibility vortices are begun.
+# Transfer to Earth
+21.5:
+- The entities of which you speak underwent several transitions, the first occurring five zero zero thousand (500,000) of your years, approximately, in your past, as you measure time. At this time, the entities were transformed into a knot. This continued for what you would call eons of your time. Those aiding them were repeatedly unable to reach them.
+- At a period approximately two zero zero thousand (200,000) years in your past, as you measure time, a Confederation entity was able to begin to relax this knot from which none had escaped during planetary annihilation. These entities then were transformed again into the inner or time/space dimensions and underwent a lengthy process of healing. When this was accomplished, these entities were then able to determine the appropriate movement, shall we say, in order to set up conditions for alleviation of the consequences of their actions. At a time four six zero zero zero, forty-six thousand (46,000) of your years in your past, as you measure time, this being approximate, these entities chose incarnation within the planetary sphere.
+
+21.6: Then no incarnation occurred before this master 75,000-year cycle of Maldek entities.
+- This is correct in the sense of incarnation in third-density time/space.
+
+21.7: These particular entities were incarnate in time/space third density, that is, the so-called inner planes, undergoing the process of healing and approaching realization of their action.
+
+21.16: The first calling was approximately four six thousand, forty-six thousand (46,000) of your years ago. This calling was of those of Maldek. These entities were aware of their need for rectifying the consequences of their action and were in some confusion in an incarnate state as to the circumstances of their incarnation; the unconscious being aware, the conscious being quite confused. This created a calling. The Confederation sent love and light to these entities.
+# Destruction of Maldek
+10.1:
+- The peoples of Maldek had a civilization somewhat similar to that of the societal complex known to you as [[Atlantis]] in that it gained much technological information and used it without care for the preservation of their sphere following to a majority extent the complex of thought, ideas, and actions which you may associate with your so-called negative polarity or the service to self. This was, however, for the most part, couched in a sincere belief/thought structure which seemed to the perception of the mind/body complexes of this sphere(Earth) to be positive and of service to others. The devastation that wracked their biosphere and caused its disintegration resulted from what you call war.
+- The escalation went to the furthest extent of the technology this social complex had at its disposal in the space/time present of the then time. This time was approximately seven oh five, oh oh oh, seven hundred and five thousand (705,000) of your years ago. The cycles had begun much, much earlier upon this sphere due to its relative ability to support the first-dimensional life forms at an earlier point in the space/time continuum of your solar system. These entities were so traumatized by this occurrence that they were in what you may call a social complex knot or tangle of fear. Some of your time passed. No one could reach them. No beings could aid them.
+- Approximately six hundred thousand (600,000) of your years ago the then-existing members of the Confederation were able to deploy a social memory complex and untie the knot of fear. The entities were then able to recall that they were conscious. This awareness brought them to the point upon what you would call the lower astral planes where they could be nurtured until each mind/body/spirit complex was able finally to be healed of this trauma to the extent that each entity was able to examine the distortions it had experienced in the previous life/illusion complex.
+- After this experience of learn/teaching, the group decision was to place upon itself a type of what you may call karma alleviation. For this purpose they came into incarnation within your planetary sphere in what were not acceptable human forms. This then they have been experiencing until the distortions of destruction are replaced by distortions towards the desire for a less distorted vision of service to others. Since this was the conscious decision of the great majority of those beings in the Maldek experience, the transition to this planet began approximately five hundred thousand (500,000) of your years ago and the type of body complex available at that time was used.
+	- 10.2: The body complex available at that time was the ape type.
+	- While in the body complex, the entities stayed as third-density.
+		- 10.3: The consciousness of these entities has always been third-density. The alleviation mechanism was designed by the placement of this consciousness in second-dimensional physical chemical complexes which are not able to be dexterous or manipulative to the extent which is appropriate to the workings of the third-density distortions of the mind complex.
+# Karma
+10.4: Many of these entities were able to remove the accumulation of what you call [[Karma|karma]], thus being able to accept a third-density cycle within a third-density body. Most of those beings so succeeding have incarnated elsewhere in the creation for the succeeding cycle in third density. As this planet reached third density some few of these entities became able to join the vibration of this sphere in the third-density form. There remain a few who have not yet alleviated through the mind/body/spirit coordination of distortions the previous action taken by them. Therefore, they remain.
+- 10.5: The few who have not yet alleviated are one type of Bigfoot.
+
+10.7: In the occurrence of planetary dissolution none escaped, for this is an action which redounds to the social complex of the planetary complex itself. None escaped the knot or tangle.
+- *thought*: If human destroyed Earth or in the dissolution of [[Earth]], none can escape too.
+- 10.8: We feel this evaluation of your planetary mind/body/spirit complex’s so-called future may be less than harmless. We say only the conditions of mind exist for such development of technology and such deployment. It is the distortion of our vision/understanding that the mind and spirit complexes of those of your people need orientation rather than the “toys” needing dismantlement, for are not all things that exist part of the Creator? Therefore, freely to choose is your honor/duty.

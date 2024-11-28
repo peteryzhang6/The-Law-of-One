@@ -41,9 +41,54 @@
 
 43.9 The use of physical pain is minimal, having only to do with the end of the fourth-density incarnation. This physical pain would not be considered severe enough to treat, shall we say, in third density. **The catalysts of mental and spiritual pain are used in fourth density**.
 
-43.18 Questioner: The mechanism of, shall we say, social catalyst due to a necessity for feeding the body then is active in fourth density. Is this correct? - Ra: I am Ra. This is incorrect. The fourth-density being desires to serve and the preparation of foodstuffs is extremely simple due to increased communion between entity and living foodstuff. Therefore, this is not a significant catalyst but rather a simple precondition of the space/time experience. The catalyst involved is the necessity for the ingestion of foodstuffs. This is not considered to be of importance by fourth-density entities and it, therefore, aids in the teach/learning of patience.
-- 43.19 Questioner: Could you expand a little bit on how that aids in the teach/learning of patience? 
-	- Ra: I am Ra. To stop the functioning of service to others long enough to ingest foodstuffs is to invoke patience.
+43.10: Why is physical pain a part of the end of fourth density?
+
+**Ra:** I am Ra. You would call this variety of pain weariness.
+
+43.11: What is the… can you even state the average lifespan in the fourth density of space/time incarnation?
+
+**Ra:** I am Ra. The space/time incarnation typical of harmonious fourth density is approximately 90,000 of your years as you measure time.
+
+43.12: Then, is there a time/space— Are there multiple incarnations in fourth density with time/space experiences between incarnations?
+
+**Ra:** I am Ra. This is correct.
+
+43.13: How long is a cycle of experience in fourth density in our years?
+
+**Ra:** The cycle of experience is approximately 30 million of your years if the entities are not capable of being harvested sooner. There is in this density a harvest which is completely the function of the readiness of the social memory complex. It is not structured as is your own, for it deals with a more transparent distortion of the One Infinite Creator.
+
+43.14: Then the big difference in harvestability between third and fourth density is that at the end of the third density the individual is harvested as a function of individual violet ray, but in fourth density, is it the equivalent of violet-ray then for the entire social memory complex that must be of a harvestable nature to go to fifth density?
+
+**Ra:** I am Ra. This is correct although in fifth density entities may choose to learn as a social memory complex or as mind/body/spirit complexes and may graduate to sixth density under these conditions, for the wisdom density is an extremely free density whereas the lessons of compassion leading to wisdom necessarily have to do with other-selves.
+
+43.16: We know that the physical vehicle in fourth density that is used during space/time, I am assuming, is quite similar to the one that we now use in third density. Is this correct?
+
+**Ra:** I am Ra. The chemical elements used are not the same. However, the appearance is similar.
+
+43.17: It is necessary to eat food in fourth density.
+
+43.18 Questioner: The mechanism of, shall we say, social catalyst due to a necessity for feeding the body then is active in fourth density. Is this correct?
+- Ra: I am Ra. This is incorrect. The fourth-density being desires to serve and the preparation of foodstuffs is extremely simple due to increased communion between entity and living foodstuff. Therefore, this is not a significant catalyst but rather a simple precondition of the space/time experience. The catalyst involved is the necessity for the ingestion of foodstuffs. This is not considered to be of importance by fourth-density entities and it, therefore, aids in the teach/learning of patience.
+
+43.19 Questioner: Could you expand a little bit on how that aids in the teach/learning of patience? 
+- Ra: I am Ra. To stop the functioning of service to others long enough to ingest foodstuffs is to invoke patience.
+
+43.25: In fourth density on this planet after we’re totally transitioned, and the harvest is complete, fourth-density beings will be incarnate on the surface of this planet as we know it now, this particular surface. Is that correct?
+
+**Ra:** I am Ra. The probability/possibility vortices indicate this to be most likely.
+
+43.26: Then will there be at that time any fifth-density and/or sixth-density beings on the surface of the planet?
+
+**Ra:** I am Ra. Not for a fairly long measure of your time as fourth-density beings need to spend their learn/teaching space/time with their own density’s entities.
+
+43.28: Is it true that the fourth-density, new fourth-density beings then need to evolve in their thinking to reach a point where fifth-density lessons would be of value?
+
+**Ra:** I am Ra. We grasp the thrust of your query. Although it is true that as fourth-density beings progress they have more and more need for other density teachings, it is also true that just as we speak to you due to the calling, so the information called is always available. It is simply that fifth-density beings will not live upon the surface of the planetary sphere until the planet reaches fifth-density vibratory level
+
+43.29: I was wondering, then, if the mechanism of teach/learning was the same, relatively, then in fourth density. From what you say, it seems that it is necessary for first the call to exist for the teach/learning of fifth density to be given to fourth just as a call must exist here before fourth-density lessons are given to third. Is this correct?
+
+**Ra:** I am Ra. This query is misguided, for experience in fourth density is emphatically not the same as third-density experience. However, it is correct that the same mechanism of calling predisposes the information received in a way consonant with free will.
+
 - 47.5 Questioner: Then at fourth-density graduation into fifth is there anything like the percentages you gave for third-density graduation into fourth for polarization? 
 	- Ra: I am Ra. There are, in your modes of thinking, responses we can make, which we shall make. However, the important point is that the graduations from density to density do occur. The positive/negative polarity is a thing which will, at the sixth level, simply become history. Therefore, we speak in an illusory time continuum when we discuss statistics of positive versus negative harvest into fifth. A large percentage of fourth-density negative entities continue the negative path from fourth- to fifth-density experience, for without wisdom the compassion and desire to aid other-self is not extremely well-informed. Thus though one loses approximately two percent moving from negative to positive during the fourth-density experience we find approximately eight percent of graduations into fifth density those of the negative.
 - 47.6 Questioner: Well, what I was actually asking was if 50% is required for graduation from third to fourth in the positive sense, 95% is required for graduation in the negative sense, does this have to more closely approach 100% in both cases for graduation from fourth to fifth? Does an entity have to be 99% polarized for negative and maybe 80% polarized for positive graduation from fourth to fifth? 

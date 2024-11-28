@@ -11,6 +11,14 @@ aliases:
 19.13: The quickest way to learn is to deal with other-selves. This is a much greater catalyst than dealing with the self. Dealing with the self without other-selves is akin to living without what you would call mirrors. Thus, the self cannot see the fruits of its beingness. Thus, each may aid each by reflection.
 
 35.4: Thus we see the so-called insanity which may often arise when an entity attempts to polarize more quickly than experience may be integrated.
+
+44.4: Can you tell me how I would hear a positively oriented signal?
+
+**Ra:** I am Ra. Two types there are of positive signal. First, in the right ear location the signal indicates a sign that you are being given some unworded message saying, “Listen. Take heed.” The other positive sign is the tone above the head which is a balanced confirmation of a thought.
+
+45.10: Why is the left ear of the service-to-self contact and the right service-to-others?
+
+**Ra:** I am Ra. The nature of your physical vehicle is that there is a magnetic field positive and negative in complex patterns about the shells of your vehicle. The left portion of the head region of most entities is, upon the time/space continuum level, of a negative polarity.
 # Bias toward which path
 19.17: We can speak only in metaphor. Some love the light. Some love the darkness. It is a matter of the unique and infinitely various Creator choosing and playing among its experiences as a child upon a picnic. Some enjoy the picnic and find the sun beautiful, the food delicious, the games refreshing, and glow with the joy of creation. Some find the night delicious, their picnic being pain, difficulty, sufferings of others, and the examination of the perversities of nature. These enjoy a different picnic.
 - All these experiences are available. It is free will of each entity which chooses the form of play, the form of pleasure.
@@ -55,6 +63,10 @@ Also Check [[Orion]] - STS Social Memory Complex
 - The early fourth density is one of the most intensive struggle. When the order of authority has been established and all have fought until convinced that each is in the proper placement for power structure, the social memory complex begins. Always the fourth-density effects of telepathy and the transparency of thought are attempted to be used for the sake of those at the apex of the power structure.
 - This, as you may see, is often quite damaging to the further polarization of fourth-density negative entities, for the further negative polarization can only come about through group effort. As the fourth-density entities manage to combine, they then polarize through such services to self as those offered by the crusaders of Orion.
 # How should STO treat STS
+44.10: Can you suggest a method whereby we might, shall I say, nullify the effect of the influence that we don’t want from a negative source?
+
+**Ra:** I am Ra. There are various methods. We shall offer the most available or simple. To share the difficult contact with the other-selves associated with this working and to meditate in love for these senders of images and light for self and other-selves is the most available means of nullifying the effects of such occurrences. To downgrade these experiences by the use of intellect or the disciplines of will is to invite the prolonging of the effects. Far better then to share in trust such experiences and join hearts and souls in love and light with compassion for the sender and armor for the self.
+
 Like Ra said, with Love and Light.
 
 *Thoughts:*

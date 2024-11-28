@@ -1,0 +1,12 @@
+# Homosexual
+31.8: We have what seems to be an increasing number of entities incarnate here now who have what is called a homosexual orientation in this respect. Could you explain and expand upon that concept?
+- **Ra:** I am Ra. Entities of this condition experience a great deal of distortion due to the fact that they have experienced many incarnations as biological male and as biological female. This would not suggest what you call homosexuality in an active phase were it not for the difficult vibratory condition of your planetary sphere. There is what you may call great aura infringement among your crowded urban areas in your more populous countries, as you call portions of your planetary surface. Under these conditions the confusions will occur.
+
+31.9: Why does density of population create these confusions?
+- **Ra:** I am Ra. The bisexual reproductive urge has as its goal, not only the simple reproductive function, but more especially the desire to serve others being awakened by this activity.  
+- In an over-crowded situation where each mind/body/spirit complex is under a constant bombardment from other-selves it is understandable that those who are especially sensitive would not feel the desire to be of service to other-selves. This also would increase the probability of a lack of desire or a blockage of the red-ray reproductive energy.
+- In an uncrowded atmosphere this same entity would, through the stimulus of feeling the solitude about it, then have much more desire to seek out someone to whom it may be of service thus regularizing the sexual reproductive function.
+
+31.10: Roughly how many previous incarnations, shall we say, would a male entity in this incarnation have had to have had in the past as a female to have a highly homosexual orientation in this incarnation? Just roughly.
+- **Ra:** I am Ra. If an entity has had roughly 65% of its incarnations in the sexual/biological body complex, the opposite polarity to its present body complex, this entity is vulnerable to the aura infringement of your urban areas and may perhaps become of what you call an homosexual nature.
+- It is to be noted at this juncture that although it is much more difficult, it is possible in this type of association for an entity to be of great service to another in fidelity and sincere green-ray love of a nonsexual nature thus adjusting or lessening the distortions of its sexual impairment.

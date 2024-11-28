@@ -38,6 +38,14 @@ That of Law of One
 
 41.6: Then could you say that sixth-density entities are using that mechanism to be more closely co-Creators with the Infinite Creator?
 - **Ra:** I am Ra. This is precisely correct as seen in the latter portions of sixth density seeking the experiences of the gateway density.
+
+43.15: Then is sixth-density harvest strictly of social memory complex because again we have compassion blended back using wisdom?
+
+**Ra:** I am Ra. This is quite correct.
+
+43.24: I am simply trying to trace the, you might say, the evolution of this catalyst that then, as you say, changes in fifth density. I might as well complete this and ask if there is any ingestion of food in sixth density?
+
+**Ra:** I am Ra. This is correct. However, the nature of this food is that of light and is impossible to describe to you in any meaningful way as regards the thrust of your query.
 # personal understanding/distortion
 at the end of 6D STS, one of the must learned lesson, I think, is that of forgiveness/reconcilation. To recall and understand the heartless action of oneself did to other selves and to feel the pain of others as self; to deal and resolve the pain of others as self; to feel the pain caused by the heartless actions of other to self; to deal and resolve the pain that felt by others of knowing their heartless actions through self; and so on and on.
 

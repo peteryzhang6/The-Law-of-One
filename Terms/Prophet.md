@@ -1,0 +1,2 @@
+# Prophet
+24.14: The so-called prophets were often given mixed information, but the worst that the [[Orion]] group could do was to cause these prophets to speak of doom, as prophecy in those days was the occupation of those who love their fellow beings and wish only to be of service to them and to the Creator.
