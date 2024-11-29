@@ -5,14 +5,14 @@
 >
 >**Ra:** I am Ra. This is more correct than you have stated. Firstly, you are correct in positing a quantum, if you will, as the nature of each density and further correct in assuming that these quanta may be seen to be of vibratory natures corresponding to color as you grasp this word. However, it is also true, as you have suspected but not asked, that each density is of the metaphysical characteristic complex of its ray. Thus in first density the red ray is the foundation for all that is to come. In second density the orange ray is that of movement and growth of the individual, this ray striving towards the yellow ray of self-conscious manifestations of a social nature as well as individual; third density being the equivalent, and so forth, each density being primarily its ray plus the attractions of the following ray pulling it forward in evolution and to some extent coloring or shading the chief color of that density.
 
-Corresponding energy center to density:
-- [[1st Density]] - [[Red Ray]]
-- [[2nd Density]] - [[Orange Ray]]
-- [[3rd Density]] - [[Yellow Ray]]
-- [[4th Density]] - [[Green Ray]]
-- [[5th Density]] - [[Blue Ray]]
-- [[6th Density]] - [[Indigo Ray]]
-- [[7th Density]] - [[Violet Ray]]
+Corresponding energy center to [[density]]:
+- 1st Density - [[Red Ray]]
+- 2nd Density - [[Orange Ray]]
+- 3rd Density - [[Yellow Ray]]
+- 4th Density - [[Green Ray]]
+- 5th Density - [[Blue Ray]]
+- 6th Density - [[Indigo Ray]]
+- 7th Density - [[Violet Ray]]
 
 The difference between density and energy center lies in that:
 - Energy Centers are the space/time manifestation of a vibration or [[Law of Love|Love]]
