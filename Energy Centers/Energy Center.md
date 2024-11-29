@@ -113,3 +113,21 @@ There are two things especially important in this relationship other than the ba
 **Ra:** I am Ra. To give this query a simple answer would be nearly impossible.  
   
 We shall simplify by concentrating upon what we consider to be the central idea towards which you are striving. We have, many times now, spoken about the relative importance of balancing as opposed to the relative unimportance of maximal activation of each energy center. The reason is as you have correctly surmised. Thusly the entity is concerned, if it be upon the path of positive harvestability, with the regularizing of the various energies of experience. Thus the most fragile entity may be more balanced than one with extreme energy and activity in service to others due to the fastidiousness with which the will is focused upon the use of experience in knowing the self. The densities beyond your own give the minimally balanced individual much time/space and space/time with which to continue to refine these inner balances.
+
+51.7: You spoke an earlier time of rotational speeds of energy centers. Am I correct in assuming that this is a function of the blockage of the energy center and the less blocked it is, the higher speed of rotation, then indicating greater energy instreaming?
+
+**Ra:** I am Ra. You are partially correct. In the first three energy centers a full unblocking of this energy will create speeds of rotation. As the entity develops the higher energy centers, however, these centers will then begin to express their nature by forming crystal structures. This is the higher or more balanced form of activation of energy centers as the space/time nature of this energy is transmuted to the time/space nature of regularization and balancing.
+
+51.8: What do you mean by crystal structures?
+
+**Ra:** I am Ra. Each of the energy centers of the physical complex may be seen to have a distinctive [[Crystallized Entity|crystalline]] structure in the more developed entity. Each will be somewhat different just as in your world no two snowflakes are alike. However, each is regular. The red energy center often is in the shape of the spoked wheel. The orange energy center in the flower shape containing three petals.  
+  
+The yellow center again in a rounded shape, many faceted, as a star.  
+  
+The green energy center sometimes called the lotus-shape, the number of points of crystalline structure dependent upon the strength of this center.  
+  
+The blue energy center capable of having perhaps one hundred facets and capable of great flashing brilliance.  
+  
+The indigo center a more quiet center which has the basic triangular or three-petaled shape in many, although some adepts who have balanced the lower energies may create more faceted forms.  
+  
+The violet energy center is the least variable and is sometimes described in your philosophy as thousand-petaled as it is the sum of the mind/body/spirit complex distortion totality.

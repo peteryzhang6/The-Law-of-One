@@ -7,6 +7,10 @@ The STS needs STO when the providing source is in danger as STO is best known fo
 
 11.31: To serve the self is to serve all. The service of the self, when seen in this perspective, requires an ever-expanding use of the energies of others for manipulation to the benefit of the self with distortion towards power.
 - I feel that "power" in our current day society has more of a negative sense of use. Thus in equivalent to power is one of light in STO perspective.
+
+52.5: Could you give me the same information on the negatively oriented social memory complexes as to the ratios, how they use the slingshot or other effect (personality [disciplines])?
+
+**Ra:** I am Ra. The fourth-density negative uses the slingshot gravitic light effect, perhaps 80% of its membership being unable to master the disciplines necessary for alternate methods of travel. In fifth-density negative approximately 50% at some point gain the necessary discipline to use thought to accomplish travel. As the sixth density approaches, the negative orientation is thrown into confusion and little travel is attempted. What travel is done is perhaps 73% of light/thought.
 # Examples of STS
 
 >11.10: All of the entities (mentioned below) were aware, through memory, of Atlantean understandings having to do with the use of the various centers of mind/body/spirit complex energy influx in attaining the gateway to intelligent infinity.

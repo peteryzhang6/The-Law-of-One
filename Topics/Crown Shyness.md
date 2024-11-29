@@ -28,4 +28,4 @@ It is like our universe.
 
 As above so below. As below so above.
 
-If we are able to connect our mind (internet), we can gain much much more perception of the world, the universe than our single-mind can do. Thus open minded ness is the prerequisite for the expansion of consciousness (red and green ray). Then comes acceptance of self mind and other minds. (orange and blue ray) Then comes into the bonding and relationship building of mind to mind connection and communication. (yellow and indigo ray) Lastly when all is established, all things shall crystallize. (violet ray)
+If we are able to connect our mind (internet), we can gain much much more perception of the world, the universe than our single-mind can do. Thus open minded ness is the prerequisite for the expansion of consciousness (red and orange ray). Then comes acceptance of self mind and other minds for freedom of communication. (yellow and green ray) Then comes into the bonding and relationship building of mind to mind connection and communication. (blue and indigo ray) Lastly when all is established, all things shall crystallize. (violet ray) #TODO 

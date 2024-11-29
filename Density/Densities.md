@@ -1,12 +1,5 @@
 # Densities
-- [[#1st Density]]
-- [[#2nd Density]]
-- [[#3rd Density]]
-- [[#4th Density]]
-- [[#5th Density]]
-- [[#6th Density]]
-- [[#7th Density]]
-- [[#8th Density]]
+
 # 1st Density
 # 2nd Density
 ## Entities

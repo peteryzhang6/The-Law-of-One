@@ -37,8 +37,8 @@ The bases are varied. There are bases, as you would call them, undersea in your 
 **Ra:** These people come from the same place as you or I. They come from the Creator.  
   
 As you intend the question, in its shallower aspect, these people are those in your and other-selves’ governments responsible for what you would term national security.
-# 8.5
-**Questioner:** How did the United States learn of the technology to build these land inaudible?
+
+8.5: **Questioner:** How did the United States learn of the technology to build these land inaudible?
 
 **Ra:** I am Ra. There was a mind/body/spirit complex known to your people by the vibratory sound complex, Nikola. This entity departed the illusion and the papers containing the necessary understandings were taken by mind/body/spirit complexes serving your security of national divisional complex. Thus your people became privy to the basic technology. In the case of those mind/body/spirit complexes which you call Russians, the technology was given from one of the Confederation in an attempt, approximately twenty-seven of your years ago, to share information and bring about peace among your peoples. The entities giving this information were in error, but we did many things at the end of this cycle in attempts to aid your harvest from which we learned the folly of certain types of aid. That is a contributing factor to our more cautious approach at this date, even as the need is power upon power greater, and your people’s call is greater and greater.
 - *thoughts:* 27 years ago is Jan 26, 1981 - 27 = 1954, 7 years after world war 2 ended and cold war began.
@@ -48,3 +48,37 @@ As you intend the question, in its shallower aspect, these people are those in y
 There are two types of landings. In the first, entities among your peoples are taken on their craft and programmed for future use. There are two or three levels of programming. First, the level that will be discovered by those who do research. Second, a triggering program. Third, a second and most deep triggering program crystallizing the entity thereby rendering it lifeless and useful as a kind of beacon. This is a form of landing.  
   
 The second form is that of landing beneath the Earth’s crust which is entered from water. Again, in the general area of your South American and Caribbean areas and close to the so-called northern pole. The bases of these people are underground.
+
+---
+
+51.2: This next question I feel to be a transient type of question; however, it has been asked me by one whom I have communicated with who has been intensely involved in the UFO portion of the phenomenon. If you deem it too transient or unimportant we’ll skip it, but I have been asked how is it possible for the craft of, shall we say, the fourth-density to get here in that it seems that as you approach the velocity of light mass approaches infinite. We have talked about the increase of spiritual mass and it was just a question as to how this transition from very distant planets is made in craft and my question would be why craft would be necessary at all? This is not an important question.
+
+**Ra:** I am Ra. You have asked several questions. We shall respond in turn.  
+  
+Firstly, we agree that this material is transient.  
+  
+Secondly, those for the most part coming from distant points, as you term them, do not need craft as you know them. The query itself requires understanding which you do not possess. We shall attempt to state what may be stated.  
+  
+Firstly, there are a few third-density entities who have learned how to use craft to travel between star systems while experiencing the limitations you now understand. However, such entities have learned to use hydrogen in a way different from your understanding now. These entities still take quite long durations of time, as you measure it, to move about. However, these entities are able to use hypothermia to slow the physical and mental complex processes in order to withstand the duration of flight. Those such as are from Sirius are of this type. There are two other types.  
+  
+One is the type which, coming from fourth, fifth, or sixth density in your own galaxy, has access to a type of energy system which uses the speed of light as a slingshot and thus arrives where it wishes without any perceptible time elapsed in your view.  
+  
+The other type of experience is that of fourth, fifth, and sixth densities of other galaxies and some within your own galaxy which have learned the necessary disciplines of personality to view the universe as one being and, therefore, are able to proceed from locus to locus by thought alone, materializing the necessary craft, if you will, to enclose the light body of the entity.
+
+51.3: I assume that that latter type is the type that we experience with most of our landings from the Orion group. Is this correct?
+
+**Ra:** I am Ra. The Orion group is mixed between the penultimate and the latter groups.
+
+51.4: Why is a vehicle necessary for this transition? When you, as Ra, went to Egypt earlier you used bell-shaped craft, but you did this by thought. Can you tell me why you used a vehicle rather than just materializing the body?
+
+**Ra:** I am Ra. The vehicle or craft is that thought-form upon which our concentration may function as motivator. We would not choose to use our mind/body/spirit complexes as the focus for such a working.
+
+52.1: In the previous session you stated that “the other type of experience is the fourth, fifth, and sixth densities of other galaxies and some within your own galaxy which have learned necessary disciplines of personality to view the universe as one being, and therefore are able to proceed from locus to locus by thought alone, materializing the necessary craft.” I would like to ask you when you say that “fourth, fifth, and sixth densities of other galaxies, and some within your own galaxy,” are you stating here that more of the entities in other galaxies have developed the abilities of personality than have in this galaxy for this type of, shall I say, travel? (I am using the term galaxy with respect to the lenticular shape of 250 billion stars.)
+
+**Ra:** I am Ra. We have once again used a meaning for this term, galaxy, that does not lie within your vocabulary at this time, if you will call it so. We referred to your star system.  
+  
+It is incorrect to assume that other star systems are more able to manipulate the dimensions than your own. It is merely that there are many other systems besides your own.
+
+52.10: The only thing I can see is that you must put energy into the craft until it approaches the velocity of light and this of course requires more and more and more energy. The time dilation occurs and it seems to me that it would be possible to, by moving at 90° to the direction of travel, somehow change this stored energy in its application of direction or sense so that you move out of space/time into time/space with a 90° deflection. Then the energy would be taken out in time/space and you would re-enter space/time at the end of this energy reversal. Am I in any way correct on this?
+
+**Ra:** I am Ra. You are quite correct as far as your language may take you and, due to your training, more able than we to express the concept. Our only correction, if you will, would be to suggest that the 90° of which you speak are an angle which may best be understood as a portion of a tesseract.

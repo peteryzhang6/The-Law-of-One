@@ -55,3 +55,16 @@ In positive, the fifth-density complex uses sixth-density teach/learners to stud
   
 In fifth-density negative, service to self has become extremely intense and the self has shrunk or compacted so that the dialogues with the teach/learners are used exclusively in order to intensify wisdom. There are very, very few fifth-density negative Wanderers for they fear the forgetting. There are very, very few fifth-density Orion members for they do not any longer perceive any virtue in other-selves.
 
+51.1: And I was wondering if there is a supervision over the harvest and if so, why this supervision is necessary and how it works since an entity’s harvestability is the violet ray? Is it necessary for entities to supervise the harvest, or is it automatic? Could you answer this, please?
+
+**Ra:** I am Ra. In time of harvest there are always harvesters. The fruit is formed as it will be, but there is some supervision necessary to ensure that this bounty is placed as it should be without the bruise or the blemish.  
+  
+There are those of three levels watching over harvest.  
+  
+The first level is planetary and that which may be called angelic. This type of guardian includes the mind/body/spirit complex totality or higher self of an entity and those inner plane entities which have been attracted to this entity through its inner seeking.  
+  
+The second class of those who ward this process are those of the Confederation who have the honor/duty of standing in the small places at the edge of the steps of light/love so that those entities being harvested will not, no matter how confused or unable to make contact with their higher self, stumble and fall away for any reason other than the strength of the light. These Confederation entities catch those who stumble and set them aright so that they may continue into the light.  
+  
+The third group watching over this process is that group you call the Guardians. This group is from the octave above our own and serves in this manner as light-bringers. These Guardians provide the precise emissions of light/love in exquisitely fastidious disseminations of discrimination so that the precise light/love vibration of each entity may be ascertained.  
+  
+Thus the harvest is automatic in that those harvested will respond according to that which is unchangeable during harvest. That is the violet-ray emanation. However, these helpers are around to ensure a proper harvesting so that each entity may have the fullest opportunity to express its violet-ray selfhood.

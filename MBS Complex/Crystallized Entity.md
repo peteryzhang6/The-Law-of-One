@@ -3,6 +3,17 @@
 
 **Ra:** I am Ra. We have used this particular term because it has a fairly precise meaning in your language. When a crystalline structure is formed of your physical material the elements present in each molecule are bonded in a regularized fashion with the elements in each other molecule. Thus the structure is regular and, when fully and perfectly crystallized, has certain properties. It will not splinter or break; it is very strong without effort; and it is radiant, traducing light into a beautiful refraction giving pleasure of the eye to many.
 
+52.11: Well, is there then, from the point of view of an individual who wishes to follow the service-to-others path from our present position in third density, is there anything of importance other than disciplines of personality, knowledge of self, and strengthening of will?
+
+**Ra:** I am Ra. This is technique. This is not the heart. Let us examine the heart of evolution.  
+  
+Let us remember that we are all one. This is the great learning/teaching. In this unity lies love. This is a great learn/teaching. In this unity lies light. This is the fundamental teaching of all planes of existence in materialization. Unity, love, light, and joy; this is the heart of evolution of the spirit.  
+  
+The second-ranking lessons are learn/taught in meditation and in service. At some point the mind/body/spirit complex is so smoothly activated and balanced by these central thoughts or distortions that the techniques you have mentioned become quite significant. However, the universe, its mystery unbroken, is one. Always begin and end in the Creator, not in technique.
+
+---
+To achieve crystallization, one need to practice [[Discipline of Personality]]
+
 ---
 
 I think one can also have a crystallized mind in such an understanding can be build. 

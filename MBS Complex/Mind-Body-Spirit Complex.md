@@ -102,3 +102,17 @@ Each human entity in 3D is made up of the following components:
 
 38.9: **:** I was also wondering then if, since action of a bellicose nature is impossible as far as I understand for vegetation, would not they have the advantage as they move into third density from second as to not carrying a racial memory of a bellicose nature and therefore develop a more harmonious society and accelerate their evolution in this nature? Is this true?
 - **Ra:** I am Ra. This is correct. However, to become balanced and begin to polarize properly it is then necessary to investigate movements of all kinds, especially [[bellicosity]].
+
+52.2: I think that possibly I am on an important point here because it seems to me that the great work in evolution is the discipline of personality, and it seems that we have two types of moving around the universe, one stemming from disciplines of personality, and the other stemming from what you call the slingshot effect. I won’t even get into the sub-light speeds because I don’t consider that too important. And I only consider this material important with respect to the fact that we are investigating discipline of the personality.  
+  
+Does the use of the slingshot effect for travel, is that a what you might call an intellectual or a left brain type of involvement of understanding rather than a right brain type?
+
+**Ra:** I am Ra. Your perception on this point is extensive. You penetrate the outer teaching. We prefer not to utilize the terminology of right and left brain due to the inaccuracies of this terminology. Some functions are repetitive or redundant in both lobes, and further, to some entities the functions of the right and left are reversed. However, the heart of the query is worth some consideration.  
+  
+The technology of which you, as a social complex, are so enamored at this time is but the birthing of the manipulation of the intelligent energy of the sub-Logos which, when carried much further, may evolve into technology capable of using the gravitic effects of which we spoke. We note that this term is not accurate but there is no closer term.  
+  
+Therefore, the use of technology to manipulate that outside the self is far, far less of an aid to personal evolution than the disciplines of the mind/body/spirit complex resulting in the whole knowledge of the self in the microcosm and macrocosm.  
+  
+To the disciplined entity, all things are open and free. The discipline which opens the universes opens also the gateways to evolution. The difference is that of choosing either to hitchhike to a place where beauty may be seen or to walk, step by step, independent and free in this independence to praise the strength to walk and the opportunity for the awareness of beauty.  
+  
+The hitchhiker, instead, is distracted by conversation and the vagaries of the road and, dependent upon the whims of others, is concerned to make the appointment in time. The hitchhiker sees the same beauty but has not prepared itself for the establishment, in the roots of mind, of the experience.

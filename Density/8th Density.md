@@ -14,3 +14,9 @@
 34.2: You stated at an earlier time that penetration of the eighth level or intelligent infinity level allows a mind/body/spirit complex to be harvested if it wishes at any time/space during the cycle. When this penetration of the eighth level occurs what does the entity who penetrates this experience? Can you tell me this?
 - **Ra:** I am Ra. The experience of each entity is unique in perception of intelligent infinity. Perceptions range from a limitless joy to a strong dedication to service to others while in the incarnated state. The entity which reaches intelligent infinity most often will perceive this experience as one of unspeakable profundity. However, it is not usual for the entity to immediately desire the cessation of the incarnation. Rather the desire to communicate or use this experience to aid others is extremely strong.
 - [[2024-10-18]]
+
+52.12: In mentioning, in the previous session, the harvest, you mentioned the light-bringers from the octave. Am I to understand that those who provide the light for the gradation of graduation are of an octave above the one we experience? Could you tell me more about these light-bringers, who they are, etc.?
+
+**Ra:** I am Ra. This will be the last full query of this working.  
+  
+This octave density of which we have spoken is both omega and alpha, the spiritual mass of the infinite universes becoming one central sun or Creator once again. Then is born a new universe, a new infinity, a new Logos which incorporates all that the Creator has experienced of Itself. In this new octave there are also those who wander. We know very little across the boundary of octave except that these beings come to aid our octave in its Logos completion.

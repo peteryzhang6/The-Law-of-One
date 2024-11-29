@@ -13,6 +13,14 @@ The STO will need STS when the self is in danger as STS is best known for its ab
 
 32.1: Thus we see protection being very simple. Give thanksgiving for each moment. See the self and the other-self as Creator. Open the heart. Always know the light and praise it. This is all the protection necessary.
 - 33.2: Harmony, thanksgiving, and praise of opportunities and of the Creator: these are your protection.
+
+52.3: I would ask this question in order to understand the mental disciplines and how they evolve. Do fourth-, fifth-, and sixth-density positive or service-to-others orientation social memory complexes use both the slingshot and the personality discipline type of effect for travel or do they use only one?
+
+**Ra:** I am Ra. The positively oriented social memory complex will be attempting to learn the disciplines of mind, body, and spirit. However, there are some which, having the technology available to use intelligent energy forces to accomplish travel, do so while learning the more appropriate disciplines.
+
+52.4: Then I am assuming in the positively oriented social memory complexes that a much higher percentage of them use the personality disciplines for this travel. Is this correct?
+
+**Ra:** I am Ra. This is correct. As positive fifth density moves into sixth there are virtually no entities which any longer use outer technology for travel or communication.
 # How should STO treat STS
 44.10: Can you suggest a method whereby we might, shall I say, nullify the effect of the influence that we don’t want from a negative source?
 

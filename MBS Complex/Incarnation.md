@@ -49,6 +49,18 @@ Let us re-examine this metaphor and multiply it into the longest poker game you 
 You cannot remember your hand, their hands, perhaps even the rules of this game. This game can only be won by those who lose their cards in the melting influence of love; can only be won by those who lay their pleasures, their limitations, their all upon the table face up and say inwardly: “All, all of you players, each other-self, whatever your hand, I love you.” This is the game: to know, to accept, to forgive, to balance, and to open the self in love. This cannot be done without the forgetting, for it would carry no weight in the life of the mind/body/spirit beingness totality.
 
 To [[Forgiveness-Reconciliation]]
+
+52.9: Well, I would just include the question as to why time of harvest is selected by so many Wanderers as time for incarnation?
+
+**Ra:** I am Ra. There are several reasons for incarnation during harvest. They may be divided by the terms self and other-self.  
+  
+The overriding reason for the offering of these Brothers and Sisters of Sorrow in incarnative states is the possibility of aiding other-selves by the lightening of the planetary consciousness distortions and the probability of offering catalyst to other-selves which will increase the harvest.  
+  
+There are two other reasons for choosing this service which have to do with the self.  
+  
+The Wanderer, if it remembers and dedicates itself to service, will polarize much more rapidly than is possible in the far more etiolated realms of higher-density catalyst.  
+  
+The final reason is within the mind/body/spirit totality or the social memory complex totality which may judge that an entity or members of a societal entity can make use of third-density catalyst to recapitulate a learning/teaching which is adjudged to be less than perfectly balanced. This especially applies to those entering into and proceeding through sixth density wherein the balance between compassion and wisdom is perfected.
 # Past Incarnations/experiences
 9.2 However, such information as this is carefully guarded by your mind/body/spirit being totality so that your present space/time experiences will be undiluted.
 
