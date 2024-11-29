@@ -17,7 +17,7 @@ Please check supplementary materials if one wishes more info: [[Densities]]
 The alpha - the eighth density of previous octave or first density of present octave
 The omega - the eighth density of present octave or first density of next octave.
 
-Check [[Tarot]] and [[Energy Center]]
+Check [[Tarot - Law of One]] and [[Energy Center]]
 
 16.22: it was stated by the Confederation that there is actually no past or future… all is present. Would this be a good analogy?
 - There is past, present, and future in third density. In an overview such as an entity may have, removed from the space/time continuum, it may be seen that in the cycle of completion there exists only the present. We, ourselves, seek to learn this understanding. At the seventh level or dimension, we(Ra) shall, if our humble efforts are sufficient, become one with all, thus having no memory, no identity, no past or future, but existing in the all.
