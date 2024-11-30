@@ -1,3 +1,7 @@
 # Jim McCarty
 Worked with [[Don Elkins]] and [[Carla Rueckert]] in 1981 to 1984 to produce the channeling of The Law of One.
 - [L/L Research Info](https://www.llresearch.org/about/james-mccarty)
+
+59.3: “I think I have penetrated the mystery of my lifelong anger at making mistakes. I think I have always been aware subconsciously of my abilities to master new learnings, but my desire to successfully complete my mission on Earth has been energized by the Orion group into irrational and destructive anger when I fail. Could you comment on this observation?”
+
+**Ra:** I am Ra. We would suggest that as this entity is aware of its position as a Wanderer, it may also consider what pre-incarnative decisions it undertook to make regarding the personal or self-oriented portion of the choosing to be here at this particular time/space. This entity is aware, as stated, that it has great potential, but potential for what? This is the pre-incarnative question. The work of sixth density is to unify wisdom and compassion. This entity abounds in wisdom. The compassion it is desirous of balancing has, as its antithesis, lack of compassion. In the more conscious being this expresses or manifests itself as lack of compassion for self. We feel this is the sum of suggested concepts for thought which we may offer at this time without infringement.

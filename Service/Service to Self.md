@@ -21,6 +21,36 @@ STS path will end in 6th density because of its constant struggle with other sel
 54.22: A negatively oriented individual mind/body/spirit complex will ordinarily program for wealth, ease of existence, and the utmost opportunity for power. Thus many negative entities burst with the physical complex distortion you call health.  
   
 However, a negatively oriented entity may choose a painful condition in order to improve the distortion toward the so-called negative emotive mentations such as anger, hatred, and frustration. Such an entity may use an entire incarnative experience honing a blunt edge of hatred or anger so that it may polarize more towards the negative or separated pole.
+
+55.3: In the session before last you stated, “However, this is a risk for the Orion entities due to the frequency with which the harvestable negative planetary entities then attempt to bid or order the Orion contact just as these entities bid planetary negative contacts.” Can you explain the mechanisms that affect polarization in consciousness with respect to this statement?
+
+**Ra:** I am Ra. The negative polarization is greatly aided by the subjugation or enslavement of other-selves. The potential between two negatively polarized entities is such that the entity which enslaves the other or bids the other gains in negative polarity.  
+  
+The entity so bidden or enslaved, in serving an other-self, will necessarily lose negative polarity although it will gain in desire for further negative polarization. This desire will then tend to create opportunities to regain negative polarity.
+
+55.4: Am I to understand then— just the fact that the third-density entity on this planet, just the fact that he calls or bids an Orion Crusader is a polarizing type of action that affects both entities?
+
+**Ra:** I am Ra. This is incorrect. The calling mechanism is not congruent in the slightest degree with the bidding mechanism. In the calling, the entity which calls is a suppliant neophyte asking for aid in negative understanding, if you may excuse this misnomer. The Orion response increases its negative polarity as it is disseminating the negative philosophy, thereby enslaving or bidding the entity calling.  
+  
+There are instances, however, when the contact becomes a contest which is prototypical of negativity. In this contest, the caller will attempt, not to ask for aid, but to demand results. Since the third-density negatively oriented harvestable entity has at its disposal an incarnative experiential nexus and since Orion Crusaders are, in a great extent, bound by the first distortion in order to progress, the Orion entity is vulnerable to such bidding if properly done. In this case, the third-density entity becomes master and the Orion Crusader becomes entrapped and can be bid. This is rare. However, when it has occurred, the Orion entity or social memory complex involved has experienced loss of negative polarity in proportion to the strength of the bidding third-density entity.
+
+55.5: You mentioned that this will work when the bidding is properly done. What did you mean by “when the bidding is properly done?”
+
+**Ra:** I am Ra. To properly bid is to be properly negative. The percentage of thought and behavior involving service to self must approach 99% in order for a third-density negative entity to be properly configured for such a contest of bidding.
+
+55.6: What method of communication with the Orion entity would a negative bidder of this type use?
+
+**Ra:** I am Ra. The two most usual types of bidding are: One, the use of perversions of sexual magic; two, the use of perversions of ritual magic. In each case the key to success is the purity of the will of the bidder. The concentration upon victory over the servant must be nearly perfect.
+
+55.7: Can you tell me, in the polarizations in consciousness, if there is any analogy with respect to what you just said in this type of contact with respect to what we are doing right now in communicating with Ra?
+
+**Ra:** I am Ra. There is no relationship between this type of contact and the bidding process. This contact may be characterized as one typical of the Brothers and Sisters of Sorrow wherein those receiving the contact have attempted to prepare for such contact by sacrificing extraneous, self-oriented distortions in order to be of service.  
+  
+The Ra social memory complex offers itself also as a function of its desire to serve. Both the caller and the contact are filled with gratitude at the opportunity of serving others.  
+  
+We may note that this in no way presupposes that either the callers or those of our group in any way approach a perfection or purity such as was described in the bidding process. The calling group may have many distortions and be working with much catalyst, as may those of Ra. The overriding desire to serve others, bonded with the unique harmonics of this group’s vibratory complexes, gives us the opportunity to serve as one channel for the One Infinite Creator.  
+  
+Things come not to those positively oriented but through such beings.
 # Examples of STS
 
 >11.10: All of the entities (mentioned below) were aware, through memory, of Atlantean understandings having to do with the use of the various centers of mind/body/spirit complex energy influx in attaining the gateway to intelligent infinity.

@@ -20,3 +20,7 @@ session 29.24-26
 - **Ra:** I am Ra. The use of the crystal in physical manifestation is that use wherein the entity of crystalline nature charges the regularized physical crystal with this seeking, thus enabling it to vibrate harmonically and also become the catalyst or gateway whereby intelligent infinity may thus become intelligent energy, this crystal serving as an analog of the violet ray of mind/body/spirit in relatively undistorted form.
 
 29.31: The uses of the crystal, as you know, include the uses for healing, for power, and even for the development of life-forms. We feel that it is unwise to offer instruction at this time as your peoples have shown a tendency to use peaceful sources of power for disharmonious reasons.
+
+S57
+
+S58

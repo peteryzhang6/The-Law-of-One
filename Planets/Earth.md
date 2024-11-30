@@ -3,6 +3,34 @@
 
 40.7: How long was the time of transition on this planet between second and third density? Generation and a half I believe. Is that correct?
 - **Ra:** I am Ra. This is correct, the time measured in your years being approximately one thousand three hundred and fifty [1,350].
+
+60.20: In trying to understand the energies, creative energies, it has occurred to me that I really do not understand why unusable heat is generated as our Earth moves from third into fourth density. I know it has to do with disharmony between the vibrations of third and fourth density but why this would show up as a physical heating within the Earth is beyond me. Can you enlighten me on that?
+
+**Ra:** I am Ra. The concepts are somewhat difficult to penetrate in your language. However, we shall attempt to speak to the subject. If an entity is not in harmony with its circumstances it feels a burning within. The temperature of the physical vehicle does not yet rise, only the heat of the temper or the tears, as we may describe this disharmony. However, if an entity persists for a long period of your space/time in feeling this emotive heat and disharmony, the entire body complex will begin to resonate to this disharmony, and the disharmony will then show up as the cancer or other degenerative distortion from what you call health.  
+  
+When an entire planetary system of peoples and cultures repeatedly experiences disharmony on a great scale the earth under the feet of these entities shall begin to resonate with this disharmony. Due to the nature of the physical vehicle, disharmony shows up as a blockage of growth or an uncontrolled growth since the primary function of a mind/body/spirit complex’s bodily complex is growth and maintenance. In the case of your planet the purpose of the planet is the maintenance of orbit and the proper location or orientation with regards to other cosmic influences. In order to have this occurring properly the interior of your sphere is hot in your physical terms. Thus instead of uncontrolled growth you begin to experience uncontrolled heat and its expansive consequences.
+
+60.21: Is the Earth solid all the way through from one side to the other?
+
+**Ra:** I am Ra. You may say that your sphere is of an honey-comb nature. The center is, however, solid if you would so call that which is molten.
+
+60.22: And the honey-comb nature— are there third-density incarnate entities living in the honey-combed areas? Is this correct?
+
+**Ra:** I am Ra. This was at one time correct. This is not correct at this present space/time.
+
+60.23: And there are no— are there any inner civilizations or entities living in these areas that are some of the other than physically incarnate who do come and materialize on the Earth’s surface at times?
+
+**Ra:** I am Ra. As we have noted, there are some which do as you say. Further, there are some inner plane entities of this planet which prefer to do some materialization into third-density visible in these areas. There are also bases, shall we say, in these areas of those from elsewhere, both positive and negative. There are abandoned cities.
+
+60.24: What are these bases used for by those from elsewhere?
+
+**Ra:** I am Ra. These bases are used for the work of materialization of needed equipment for communication with third-density entities and for resting places for some equipment which you might call small craft. These are used for surveillance when it is requested by entities. Thus some of the, shall we say, teachers of the Confederation speak partially through these surveillance instruments along computerized lines, and when information is desired and those requesting it are of the proper vibratory level the Confederation entity itself will then speak.
+
+60.25: Am I to understand then that the [[Confederation]] entity needs communication equipment and craft to communicate with the third-density incarnate entity requesting the information?
+
+**Ra:** I am Ra. This is incorrect. However, many of your peoples request the same basic information in enormous repetition, and for a social memory complex to speak ad infinitum about the need to meditate is a waste of the considerable abilities of such social memory complexes.  
+  
+Thus some entities have had approved by the Council of Saturn the placement and maintenance of these message givers for those whose needs are simple, thus reserving the abilities of the Confederation members for those already meditating and absorbing information which are then ready for additional information.
 # 3D Earth
 15.4: Rapid aging occurs upon this third-density planet due to an ongoing imbalance of receptor web complex in the etheric portion of the energy field of this planet. The thought-form distortions of your peoples have caused the energy streamings to enter the planetary magnetic atmosphere, if you would so term this web of energy patterns, in such a way that the proper streamings are not correctly imbued with balanced vibratory light/love from the, shall we say, cosmic level of this octave of existence.
 - 15.5: one of your (Ra) attempts in service to this planet was to help the population of this planet more fully understand and practice the Law of One so that this aging, rapid aging could be changed to normal aging
