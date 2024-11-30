@@ -8,6 +8,22 @@ Has [[UFO]] landings.
 - S24
 - S25
 - S31 - sexual energy impression
+
+53.14: Well, are both those who are taken on Confederation and Orion craft then experiencing a seeming physical examination?
+
+**Ra:** I am Ra. Your query indicates incorrect thinking. The Orion group uses the physical examination as a means of terrifying the individual and causing it to feel the feelings of an advanced second-density being such as a laboratory animal. The sexual experiences of some are a sub-type of this experience. The intent is to demonstrate the control of the Orion entities over the Terran inhabitant.  
+  
+The thought-form experiences are subjective and, for the most part, do not occur in this density.
+
+53.16: Well, we have a large spectrum of entities on Earth with respect to harvestability, both positively oriented and negatively oriented. Would the Orion target in on the ends of this spectrum, both positive and negatively oriented, for contact— for Earth entities, I mean?
+
+**Ra:** I am Ra. This query is somewhat difficult to accurately answer. However, we shall attempt to do so.  
+  
+The most typical approach of Orion entities is to choose what you might call the weaker-minded entity that it might suggest a greater amount of Orion philosophy to be disseminated.  
+  
+Some few Orion entities are called by more highly polarized negative entities of your space/time nexus. In this case they share information just as we are now doing. However, this is a risk for the Orion entities due to the frequency with which the harvestable negative planetary entities then attempt to bid and order the Orion contact just as these entities bid planetary negative contacts. The resulting struggle for mastery, if lost, is damaging to the polarity of the Orion group.  
+  
+Similarly, a mistaken Orion contact with highly polarized positive entities can wreak havoc with Orion troops unless these Crusaders are able to depolarize the entity mistakenly contacted. This occurrence is almost unheard of. Therefore, the Orion group prefers to make physical contact only with the weaker-minded entity.
 # Purpose
 8.12: Their purpose is conquest, unlike those of the Confederation who wait for the calling. The so-called Orion group calls itself to conquest.
 

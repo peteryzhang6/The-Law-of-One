@@ -29,3 +29,7 @@ Thus to ignore the free will of other beings can be seen as one of the "worst" t
 - Each entity will receive the opportunity that each needs. This information source-beingness does not have uses in the life-experience complex of each of those among your peoples who seek. Thus the advertisement is general and not designed to indicate the searching out of any particular material, but only to suggest the noumenal aspect of the illusion.
 
 19.12: With the primal distortion of free will, each galaxy developed its own Logos. This Logos has complete free will in determining the paths of intelligent energy which promote the lessons of each of the densities given the conditions of the planetary spheres and the sun bodies.
+
+54.13: Then I assume that the first distortion is the, shall I say, motivator or what allows this blockage. Is this correct?
+
+**Ra:** I am Ra. We wish no quibbling but prefer to avoid the use of terms such as the verb, to allow. Free will does not allow, nor would predetermination disallow, experiential distortions. Rather the Law of Confusion offers a free reach for the energies of each mind/body/spirit complex. The verb, to allow, would be considered pejorative in that it suggests a polarity between right and wrong or allowed and not allowed. This may seem a minuscule point. However, to our best way of thinking it bears some weight.

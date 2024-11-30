@@ -131,3 +131,35 @@ The blue energy center capable of having perhaps one hundred facets and capable 
 The indigo center a more quiet center which has the basic triangular or three-petaled shape in many, although some adepts who have balanced the lower energies may create more faceted forms.  
   
 The violet energy center is the least variable and is sometimes described in your philosophy as thousand-petaled as it is the sum of the mind/body/spirit complex distortion totality.
+
+54.26-27: Can you describe the energy that enters any of these energy centers? Can you describe its path from its origin, its form, and its effect? I don’t know if this is possible, but can you do that?
+
+**Ra:** I am Ra. 
+
+The origin of all energy is the action of free will upon love. The nature of all energy is light. The means of its ingress into the mind/body/spirit complex is duple.  
+  
+Firstly, there is the inner light which is Polaris of the self, the guiding star. This is the birthright and true nature of all entities. This energy dwells within.  
+  
+The second point of ingress is the polar opposite of the North Star, shall we say, and may be seen, if you wish to use the physical body as an analog for the magnetic field, as coming through the feet from the earth and through the lower point of the spine. This point of ingress of the universal light energy is undifferentiated until it begins its filtering process through the energy centers. The requirements of each center and the efficiency with which the individual has learned to tap into the inner light determine the nature of the use made by the entity of these instreamings.
+
+54.28: Does experiential [[The Catalyst|catalyst]] follow the same path? This may be a dumb question.
+
+**Ra:** I am Ra. This is not a pointless question, for catalyst and the requirements or distortions of the energy centers are two concepts linked as tightly as two strands of rope.
+
+54.29: Then, you had mentioned in an earlier session that the experiential catalyst was first experienced by the south pole and appraised with its respect to survival, etc. That’s why I asked the question, and I— can you expand on that concept?
+
+**Ra:** I am Ra. We have addressed the filtering process by which in-coming energies are pulled upwards according to the distortions of each energy center and the strength of will or desire emanating from the awareness of inner light.
+
+54.30: We have, coming through the feet and base of the spine, the total energy that the mind/body/spirit complex will receive in the way of what we call light. Each energy center as it is met filters out and uses a portion of this energy, red through violet. Is this correct?
+
+**Ra:** I am Ra. This is largely correct. The exceptions are as follows: The energy ingress ends with indigo. The violet ray is a thermometer or indicator of the whole.
+
+54.31: As this energy is absorbed by the energy centers at some point it is not only absorbed into the being but radiates through the energy center outwardly. I believe this begins with the blue center and, and also occurs with the indigo and violet? Is this correct?
+
+**Ra:** I am Ra. Firstly, we would state that we had not finished answering the previous query and may thus answer both in part by stating that in the fully activated entity, only that small portion of instreaming light needed to tune the energy center is used, the great remainder being free to be channeled and attracted upwards.  
+  
+To answer your second question more fully we may say that it is correct that radiation without the necessity of response begins with blue ray although the green ray, being the great transitional ray, must be given all careful consideration, for until transfers of energy of all types has been experienced and mastered to a great extent, there will be blockages in the blue and indigo radiations.  
+  
+Again, the violet emanation is, in this context, a resource from which, through indigo, intelligent infinity may be contacted. The radiation thereof will not be violet ray but rather green, blue, or indigo depending upon the nature of the type of intelligence which infinity has brought through into discernible energy.
+
+The green-ray type of radiation in this case is the healing, the blue-ray the communication and inspiration, the indigo that energy of the adept which has its place in faith.

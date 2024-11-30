@@ -48,3 +48,17 @@ Control is the key to negatively polarized use of catalyst. Acceptance is the ke
 46.16: What is the plan for use of the catalyst of cancer?
 
 **Ra:** I am Ra. The catalyst, and all catalyst, is designed to offer experience. This experience in your density may be loved and accepted or it may be controlled. These are the two paths. When neither path is chosen the catalyst fails in its design and the entity proceeds until catalyst strikes it which causes it to form a bias towards acceptance and love or separation and control. There is no lack of space/time in which this catalyst may work.
+
+54.17: I would like then to trace the evolution of catalyst upon the mind/body/spirit complexes and how it comes into use and is fully used to create this tuning. I assume that the sub-Logos that formed our tiny part of the creation using the intelligence of the Logos of which it is a part, provides, shall I say, the base catalyst that will act upon mind/body complexes and mind/body/spirit complexes before they reach the state of development where they can begin to program their own catalyst. Is this correct?
+
+**Ra:** I am Ra. This is partially correct. The sub-Logos offers the catalyst at the lower levels of energy, the first triad; these have to do with the survival of the physical complex. The higher centers gain catalyst from the biases of the mind/body/spirit complex itself in response to all random and directed experiences.  
+  
+Thus the less developed entity will perceive the catalyst about it in terms of survival of the physical complex with the distortions which are preferred. The more conscious entity, being conscious of the catalytic process, will begin to transform the catalyst offered by the sub-Logos into catalyst which may act upon the higher energy nexi. Thus the sub-Logos can offer only a basic skeleton, shall we say, of catalyst. The muscles and flesh having to do with the, shall we say, survival of wisdom, love, compassion, and service are brought about by the action of the mind/body/spirit complex on basic catalyst so as to create a more complex catalyst which may in turn be used to form distortions within these higher energy centers.  
+  
+The more advanced the entity, the more tenuous the connection between the sub-Logos and the perceived catalyst until, finally, all catalyst is chosen, generated, and manufactured by the self, for the self.
+
+54.18: Which entities incarnate at this time on this planet would be of that category, manufacturing all of their catalyst?
+
+**Ra:** I am Ra. We find your query indeterminate but can respond that the number of those which have mastered outer catalyst completely is quite small.  
+  
+Most of those harvestable at this space/time nexus have partial control over the outer illusion and are using the outer catalyst to work upon some bias which is not yet in balance.

@@ -82,3 +82,7 @@ It is incorrect to assume that other star systems are more able to manipulate th
 52.10: The only thing I can see is that you must put energy into the craft until it approaches the velocity of light and this of course requires more and more and more energy. The time dilation occurs and it seems to me that it would be possible to, by moving at 90° to the direction of travel, somehow change this stored energy in its application of direction or sense so that you move out of space/time into time/space with a 90° deflection. Then the energy would be taken out in time/space and you would re-enter space/time at the end of this energy reversal. Am I in any way correct on this?
 
 **Ra:** I am Ra. You are quite correct as far as your language may take you and, due to your training, more able than we to express the concept. Our only correction, if you will, would be to suggest that the 90° of which you speak are an angle which may best be understood as a portion of a tesseract.
+
+53.17: Then in general I could say that if an individual has a “close encounter” with a UFO or any other type of experience that seems to be UFO-related, he must look to the heart of the encounter and the effect upon him to determine whether it was Orion or Confederation contact. Is this correct?
+
+**Ra:** I am Ra. This is correct. If there is fear and doom, the contact was quite likely of a negative nature. If the result is hope, friendly feelings, and the awakening of a positive feeling of purposeful service to others, the marks of Confederation contact are evident.

@@ -25,3 +25,15 @@ Check [[Law of Love]]
 
 29.32: I guess what we’d better get to then, now that we have traced the path of creation at least down to the crystalline structure, we’d better concentrate on the evolution of thought and its seeking path to intelligent infinity. We have created, in the major galaxy of the Logos, a very large number of planets. As these planets develop, is it possible for you to give me an example of various planetary developments in what I would call a metaphysical sense having to do with the development of consciousness and its polarities throughout the galaxy? In other words I believe that some of these planets develop quite rapidly into higher density planets and some take longer times. Can you give me some idea of that development?
 - **Ra:** I am Ra. The particular Logos of your major galaxy has used a large portion of Its coalesced material to reflect the beingness of the Creator. In this way there is much of your galactic system which does not have the progression of which you speak but dwells spiritually as a portion of the Logos. Of those entities upon which consciousness dwells there is, as you surmise, a variety of time/space periods during which the higher densities of experience are attained by consciousness.
+
+54.4: From the Logos comes all frequencies of radiation of light. These frequencies of radiation make up all of the densities of experience that are created by that Logos. I am assuming that the planetary system of our sun, in all of its densities, is the total of the experience created by our sun as a Logos. Is this correct?
+
+**Ra:** I am Ra. This is correct.
+
+54.5: Now, I am assuming that the different frequencies are separated, as we have said, into the seven colors, that each of these colors may be the basic frequency for a sub-Logos of our sun Logos and that a sub-Logos or, shall we say, an individual may activate any one of these basic frequency or colors and use the body that is generated from the activation of that frequency or color. Is this correct?
+
+**Ra:** I am Ra. If we grasp your query correctly this is not correct in that the sub-sub-Logos resides, not in dimensionalities, but only in co-Creators, or mind/body/spirit complexes.
+
+54.10: Then I will assume that the Creator in Its intelligent appraisal of a way of knowing Itself, created the concept of the seven areas of knowing. Is this correct?
+
+**Ra:** I am Ra. This is partially incorrect. The Logos creates light. The nature of this light thus creates the nature of the catalytic and energetic levels of experience in the creation. Thus it is that the highest of all honor/duties, that given to those of the next octave, is the supervision of light in its manifestations during the experiential times, if you will, of your cycles.

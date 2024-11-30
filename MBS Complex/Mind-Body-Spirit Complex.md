@@ -116,3 +116,57 @@ Therefore, the use of technology to manipulate that outside the self is far, far
 To the disciplined entity, all things are open and free. The discipline which opens the universes opens also the gateways to evolution. The difference is that of choosing either to hitchhike to a place where beauty may be seen or to walk, step by step, independent and free in this independence to praise the strength to walk and the opportunity for the awareness of beauty.  
   
 The hitchhiker, instead, is distracted by conversation and the vagaries of the road and, dependent upon the whims of others, is concerned to make the appointment in time. The hitchhiker sees the same beauty but has not prepared itself for the establishment, in the roots of mind, of the experience.
+
+54.3: As we have noted, each mind/body/spirit complex has several guides available to it. The persona of two of these guides is the polarity of male and female. The third is androgynous and represents a more unified conceptualization faculty.
+
+54.6: What I meant was that a mind/body/spirit complex then can have a body activated that is one of these seven rays. Is this correct?
+
+**Ra:** I am Ra. This is correct in the same sense as it is correct to state that any one may play a complex instrument which develops an euphonious harmonic vibration complex such as your piano and can play this so well that it might offer concerts to the public, as you would say. In other words, although it is true that each true-color vehicle is available potentially there is skill and discipline needed in order to avail the self of the more advanced or lighter vehicles.
+
+54.7: We have, coming from the sub-Logos we call our sun, intelligent energy, which then forms, and we’ll take as an example a single sub-sub-logos which is a mind/body/spirit complex. This intelligent energy is somehow modulated or distorted, so that it ends up as a mind/body/spirit complex with certain distortions of personality that it is necessary for the mind/body/spirit complex or the mental portion of that complex to undistort in order to conform once more precisely with the original intelligent energy.  
+  
+First, I want to know if my statement on that is correct, and, secondly, I want to know why this is the way that it is; if there is any answer other than the first distortion of the Law of One for this?
+
+**Ra:** I am Ra. This statement is substantially correct. If you will penetrate the nature of the first distortion in its application of self knowing self, you may begin to distinguish the hallmark of an Infinite Creator, variety. Were there no potentials for misunderstanding and, therefore, understanding, there would be no experience.
+
+54.8: Once a mind/body/spirit complex becomes aware of this process it then decides that in order to have the abilities, the full abilities of the Creation and the Creator of which it is a small part yet at the same time, all of, in order to have the abilities that go with the entire Creation, it is necessary to reunite its thinking or reharmonize its thinking with the Original Creative Thought in precise vibration or frequency of vibration I will say. In order to do this it is necessary to discipline the personality so that it precisely conforms to the Original Thought or Original Vibration, and this is broken into seven areas of discipline each corresponding to one of the colors of the spectrum. Is this correct?
+
+**Ra:** I am Ra. This statement, though correct, bears great potential for being misunderstood. The precision with which each energy center matches the Original Thought lies not in the systematic placement of each energy nexus but rather in the fluid and plastic placement of the balanced blending of these energy centers in such a way that intelligent energy is able to channel itself with minimal distortion.  
+  
+The mind/body/spirit complex is not a machine. It is rather what you might call a tone poem.
+
+54.9: Do all mind/body/spirit complexes in the entire creation have the seven energy centers once they have reached full development or development to the point where they can have seven energy centers?
+
+**Ra:** I am Ra. These energy centers are in potential in macrocosm from the beginning of creation by the Logos. Coming out of timelessness, all is prepared. This is so of the infinite creation.
+
+54.11: I will make another statement. The mind/body/spirit complex may choose, because of the first distortion, a mental configuration that is sufficiently displaced from the configuration of the intelligent energy in a particular frequency or color of instreaming energy so as to block a portion of instreaming energy in that particular frequency or color. Is this statement correct?
+
+**Ra:** I am Ra. Yes.
+
+54.12: This question may be no good, but I’ll ask it. Can you give me an idea of the maximum percentage of this energy it’s possible to block in any one color or does that make any sense?
+
+**Ra:** I am Ra. There may be, in an entity’s pattern of instreaming energy, a complete blockage in any energy or color or combination of energies or colors.
+
+54.14-15: Now, I would like to then consider the origin of catalyst in—. First we have the condition of mind/body/spirit complex which, as a function of the first distortion, has reached a condition of blockage or partial blockage of one or more energy centers. I will assume that catalyst is necessary only if there is at least partial blockage of one energy center. Is this correct?
+
+**Ra:** I am Ra. No.
+
+While it is a primary priority to activate or unblock each energy center, it is also a primary priority at that point to begin to refine the balances between the energies so that each tone of the chord of total vibratory beingness resonates in clarity, tune, and harmony with each other energy. This balancing, tuning, and harmonizing of the self is most central to the more advanced or adept mind/body/spirit complex. Each energy may be activated without the beauty that is possible through the disciplines and appreciations of personal energies or what you might call the deeper personality or soul identity.
+
+54.16: A seven-stringed musical instrument may be played by deflecting each string a full deflection and releasing it and getting a note. Or, once the strings are capable of being deflected through their full deflection (producing a note), instead of producing the notes this way taking the individual creative personality and deflecting each the proper amount in proper sequence to produce the music. Is this correct?
+
+**Ra:** I am Ra. This is correct. In the balanced individual the energies lie waiting for the hand of the Creator to pluck harmony.
+
+54.23: Now, it seems that we have prior to incarnation, in any incarnation, as an entity becomes more aware of the process of evolution and has selected a path whether it be positive or negative, at some point the entity becomes aware of what it wants to do with respect to unblocking and balancing energy centers. At that point it is able to program for the life experience those catalytic experiences that will aid it in its process of unblocking and balancing. Is that correct?
+
+**Ra:** I am Ra. That is correct.
+
+54.24: The purpose then, seen from previous to incarnation, of what we call the incarnate physical state, seems to be wholly, or almost wholly, that of experiencing at that point the programmed [[The Catalyst|catalyst]] and then evolving as a function of that catalyst. Is that correct?
+
+**Ra:** I am Ra. We shall restate for clarity. The purpose of incarnative existence is evolution of mind, body, and spirit. In order to do this it is not strictly necessary to have catalyst. However, without catalyst the desire to evolve and the faith in the process do not normally manifest and thus evolution occurs not. Therefore, catalyst is programmed and the program is designed for the mind/body/spirit complex for its unique requirements. Thus it is desirable that a mind/body/spirit complex be aware of and hearken to the voice of its experiential catalyst, gleaning from it that which it incarnated to glean.
+
+54.25: Then it seems that those on the positive path as opposed to those on the negative path would have precisely the reciprocal objective in the first three rays; red, orange, and yellow. Each path would be attempting to utilize the rays in precisely opposite manners. Is this correct?
+
+**Ra:** I am Ra. It is partially and even substantially correct. There is an energy in each of the centers needed to keep the mind/body/spirit complex, which is the vehicle for experience, in correct conformation and composition. Both negative and positive entities do well to reserve this small portion of each center for the maintenance of the integrity of the mind/body/spirit complex. After this point, however, it is correct that the negative will use the three lower centers for separation from and control over others by sexual means, by personal assertion, and by action in your societies.  
+  
+Contrary-wise, the positively oriented entity will be transmuting strong red-ray sexual energy into green-ray energy transfers and radiation in blue and indigo and will be similarly transmuting selfhood and place in society into energy transfer situations in which the entity may merge with and serve others and then, finally, radiate unto others without expecting any transfer in return.

@@ -3,6 +3,8 @@ Check [[STO-STS]]
 
 The STS needs STO when the providing source is in danger as STO is best known for its ability to preserve the outer source.
 
+STS path will end in 6th density because of its constant struggle with other self, which in unity, it is seen as a struggle within the self, thus causing it to end.
+
 **7.14:** Consider, if you will, a simple example of intentions which are bad/good. This example is Adolf. This is your vibratory sound complex. The intention is to presumably unify by choosing the distortion complex called elite from a social memory complex and then enslaving, by various effects, those who are seen as the distortion of not-elite. There is then the concept of taking the social memory complex thus weeded and adding it to a distortion thought of by the so-called Orion group as an empire. The problem facing them is that they face a great deal of random energy released by the concept of separation. This causes them to be vulnerable as the distortions amongst their own members are not harmonized.
 
 11.31: To serve the self is to serve all. The service of the self, when seen in this perspective, requires an ever-expanding use of the energies of others for manipulation to the benefit of the self with distortion towards power.
@@ -11,6 +13,14 @@ The STS needs STO when the providing source is in danger as STO is best known fo
 52.5: Could you give me the same information on the negatively oriented social memory complexes as to the ratios, how they use the slingshot or other effect (personality [disciplines])?
 
 **Ra:** I am Ra. The fourth-density negative uses the slingshot gravitic light effect, perhaps 80% of its membership being unable to master the disciplines necessary for alternate methods of travel. In fifth-density negative approximately 50% at some point gain the necessary discipline to use thought to accomplish travel. As the sixth density approaches, the negative orientation is thrown into confusion and little travel is attempted. What travel is done is perhaps 73% of light/thought.
+
+54.19: In the case of service-to-self polarization, what type of catalyst would entities following this path program when they reach the level of programming their own catalyst?
+
+**Ra:** I am Ra. The negatively oriented entity will program for maximal separation from and control over all those things and conscious entities which it perceives as being other than the self.
+
+54.22: A negatively oriented individual mind/body/spirit complex will ordinarily program for wealth, ease of existence, and the utmost opportunity for power. Thus many negative entities burst with the physical complex distortion you call health.  
+  
+However, a negatively oriented entity may choose a painful condition in order to improve the distortion toward the so-called negative emotive mentations such as anger, hatred, and frustration. Such an entity may use an entire incarnative experience honing a blunt edge of hatred or anger so that it may polarize more towards the negative or separated pole.
 # Examples of STS
 
 >11.10: All of the entities (mentioned below) were aware, through memory, of Atlantean understandings having to do with the use of the various centers of mind/body/spirit complex energy influx in attaining the gateway to intelligent infinity.

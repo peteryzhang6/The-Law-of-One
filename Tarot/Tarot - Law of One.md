@@ -22,6 +22,10 @@ One moves into the next trinity (4-6): One will first have The Experience (4th d
 
 The first trinity can be viewed as yin and the second as yang. When the two trinity is truly united, the great way (7th density, violet ray, foreverness) opens. One have the option of progressing into the next octave or incarnate back into the first trinity to further enhance one's understanding.
 
+Ra uses "triad" instead of "trinity". (54.17)
+
+The above description is talked about in 54.17.
+
 [Law of One Tarot Study](Law%20of%20One%20Tarot%20Study.md)
 
 [Ra's opinion on each card](https://www.lawofone.info/c/Tarot)

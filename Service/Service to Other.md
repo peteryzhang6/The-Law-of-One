@@ -21,6 +21,10 @@ The STO will need STS when the self is in danger as STS is best known for its ab
 52.4: Then I am assuming in the positively oriented social memory complexes that a much higher percentage of them use the personality disciplines for this travel. Is this correct?
 
 **Ra:** I am Ra. This is correct. As positive fifth density moves into sixth there are virtually no entities which any longer use outer technology for travel or communication.
+
+54.21: A positively oriented entity may select a certain narrow path of thinking and activities during an incarnation and program conditions that would create physical pain if this path were not followed. Is this correct?
+
+**Ra:** I am Ra. This is correct.
 # How should STO treat STS
 44.10: Can you suggest a method whereby we might, shall I say, nullify the effect of the influence that we don’t want from a negative source?
 
