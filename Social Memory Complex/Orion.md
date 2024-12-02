@@ -24,6 +24,46 @@ The most typical approach of Orion entities is to choose what you might call the
 Some few Orion entities are called by more highly polarized negative entities of your space/time nexus. In this case they share information just as we are now doing. However, this is a risk for the Orion entities due to the frequency with which the harvestable negative planetary entities then attempt to bid and order the Orion contact just as these entities bid planetary negative contacts. The resulting struggle for mastery, if lost, is damaging to the polarity of the Orion group.  
   
 Similarly, a mistaken Orion contact with highly polarized positive entities can wreak havoc with Orion troops unless these Crusaders are able to depolarize the entity mistakenly contacted. This occurrence is almost unheard of. Therefore, the Orion group prefers to make physical contact only with the weaker-minded entity.
+
+62.15: The Orion group has as an objective the bringing of service-to-self polarized entities to harvest, as great a harvest as possible. This harvest will build their potential or their ability to do work in consciousness as given by the distortion of the Law of One called the Law of Squares or Doubling. Is this correct?
+
+**Ra:** I am Ra. This is correct.
+
+62.16: Are there other groups of those who are on the service-to-self path joined with those from the Orion constellation? For instance, those of Southern Cross, are they presently working for the same type of harvest with respect to Earth?
+
+**Ra:** I am Ra. These you mention of Southern Cross are members of the Orion group. It is not, shall we say, according to understood wording that a group from various galaxies should be named by one. However, those planetary social memory complexes of the so-called Orion constellation have the upper hand and thus rule the other members. You must recall that in negative thinking there is always the pecking order, shall we say, and the power against power in separation.
+
+62.17: By creating as large a harvest as possible of negatively oriented entities from Earth, then, the social memory complex of the Orion group gains in strength. Am I correct in assuming this strength then is in the total strength of the complex, the pecking order remaining approximately the same, and those at the top gaining in strength with respect to the total strength of the social memory complex? Is this correct?
+
+**Ra:** I am Ra. This is correct. To the stronger go the greater shares of polarity.
+
+62.18: Then what do the ones at the top of the pecking order of the Orion group— well, let me first ask this: Are we talking about the fourth-density group now?
+
+**Ra:** I am Ra. There are fourth and a few fifth-density members of the Orion group.
+
+62.19: Then is the top of the pecking order fifth-density?
+
+**Ra:** I am Ra. This is correct.
+
+62.20: What is the objective; what does the, shall we say, the leader, the one at the very top of the pecking order in fifth-density Orion, have as an objective? I would like to understand his philosophy with respect to his objectives and plans for what we might call the future or his future?
+
+**Ra:** I am Ra. This thinking will not be so strange to you. Therefore, we may speak through the densities as your planet has some negatively oriented action in sway at this space/time nexus.  
+  
+The early [[5th Density|fifth-density]] negative entity, if oriented towards maintaining cohesion as a social memory complex, may in its free will determine that the path to wisdom lies in the manipulation in exquisite propriety of all other-selves. It then, by virtue of its abilities in wisdom, is able to be the leader of fourth-density beings which are upon the road to wisdom by exploring the dimensions of love of self and understanding of self. These fifth-density entities see the creation as that which shall be put in order.  
+  
+Dealing with a plane such as this third density at this harvesting, it will see the mechanism of the call more clearly and have much less distortion towards plunder or manipulation by thoughts which are given to negatively oriented entities although in allowing this to occur and sending less wise entities to do this work, any successes redound to the leaders.  
+  
+The fifth density sees the difficulties posed by the light and in this way directs entities of this vibration to the seeking of targets of opportunity such as this one. If fourth-density temptations, shall we say, towards distortion of ego, etc., are not successful the fifth-density entity then thinks in terms of the removal of light.
+
+62.21: When the Orion entity who waits us seeking the opportunity to attack is with us here can you describe his method of coming here, what he looks like, and how he waits? I know that this isn’t too important, but it might give me a little insight into what we are talking about.
+
+**Ra:** I am Ra. Fifth-density entities are very light beings although they do have the type of physical vehicle which you understand. Fifth-density entities are very fair to look upon in your standard of beauty.  
+  
+The thought is what is sent, for a fifth-density entity is likely to have mastered this technique or discipline. There is little or no means of perceiving such an entity, for unlike fourth-density negative entities the fifth-density entity walks with light feet.  
+  
+This instrument was aware of extreme coldness in the past diurnal cycle and spent much more time than your normal attitudes would imagine to be appropriate in what seemed to each of you an extremely warm climate. This was not perceived by the instrument, but the drop in subjective temperature is a sign of presence of a negative or nonpositive or draining entity.  
+  
+This instrument did mention a feeling of discomfort but was nourished by this group and was able to dismiss it. Had it not been for a random mishap, all would have been well, for you have learned to live in love and light and do not neglect to remember the One Infinite Creator.
 # Purpose
 8.12: Their purpose is conquest, unlike those of the Confederation who wait for the calling. The so-called Orion group calls itself to conquest.
 

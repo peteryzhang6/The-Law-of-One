@@ -1,7 +1,3 @@
----
-aliases:
-  - Brothers and Sisters of Sorrow
----
 # Wanderer
 11.29: Wanderers incarnated in several waves, as you may call them, in order to bring into existence the gradual freeing from the demands of the diurnal cycles and lack of freedom of leisure.
 
@@ -31,3 +27,15 @@ Furthermore, the Wanderer is, in its own mind/body/spirit complex, less distorte
 - **Ra:** I am Ra. We can approximate the percentage of those penetrating intelligently their status. This is between eight and one-half and nine and three-quarters percent. There is a larger percentile group of those who have a fairly well defined, shall we say, symptomology indicating to them that they are not of this, shall we say, “insanity.” This amounts to a bit over fifty percent of the remainder. Nearly one-third of the remainder are aware that something about them is different, so you see there are many gradations of awakening to the knowledge of being a Wanderer. We may add that it is to the middle and first of these groups that this information will, shall we say, make sense.
 
 45.4: A significant portion of sixth-density Wanderers are those of our social memory complex. Another large portion consists of those who aided those in South America; another portion, those aiding Atlantis. All sixth density and all brother and sister groups due to the unified feeling that as we had been aided by shapes such as the pyramid, so we could aid your peoples.
+
+63.17: Is the reason that they can do this and the fifth- and sixth-density Wanderers who are here cannot do it (metal bending) the fact that they have the fourth-density body in activation?
+
+**Ra:** I am Ra. This is correct. Wanderers are third-density activated in mind/body/spirit and are subject to the forgetting which can only be penetrated with disciplined meditation and working.
+
+63.18: I am assuming that the reason for this is that, first, since the entities of harvestable third density who have very recently come here, they’re coming here late enough so that they will not affect the, shall I say, polarization through their teachings. They are not infringing on the first distortion because they are children now and they won’t be old enough to really affect any of the polarization until the transition is well into transition. However, the Wanderers who came here and are older and have a greater ability to affect [polarization] must do that affecting as a function of their ability to penetrate the forgetting process in order to be within the first distortion. Is this correct?
+
+**Ra:** I am Ra. This is quite correct.
+
+63.19: It would seem to me that some of the harvestable third-density entities are, however, relatively old since I know of some individuals who can bend metal who are over 50 years old and some over 30. Would there be other entities who can bend metal for other reasons than having dual activated bodies?
+
+**Ra:** I am Ra. This is correct. Any entity who, by accident or by careful design, penetrates intelligent energy’s gateway may use the shaping powers of this energy.

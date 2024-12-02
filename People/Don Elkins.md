@@ -23,3 +23,5 @@ S37
 45.7: Are all of us of one of the groups that you mentioned?
 
 **Ra:** I am Ra. We shall go to the limits of our attempts to refrain from infringement. Two are a sixth-density origin, one a fifth-density harvestable to sixth but choosing to return as a Wanderer due to a loving association between teacher and student. Thus you three form a greatly cohesive group.
+
+S61

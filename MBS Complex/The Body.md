@@ -34,6 +34,37 @@ What is this opportunity but survival? This is the root possibility of response 
 50.3: Why do you say the experience is drawn to or attracted to the entity?
 
 **Ra:** I am Ra. We say this due to our understanding that this is the nature of the phenomenon of experiential catalyst and its entry into the mind/body/spirit complex’s awareness.
+
+61.7: Second question: could you give an example of how feelings affect portions of the body and the sensations of the body?
+
+**Ra:** I am Ra. It is nearly impossible to speak generally of these mechanisms, for each entity of proper seniority has its own programming. Of the less aware entities we may say that the connection will often seem random as the higher self continues producing catalyst until a bias occurs. In each programmed individual the sensitivities are far more active and, as we have said, that catalyst not used fully by the mind and spirit is given to the body.  
+  
+Thus you may see in this entity the numbing of the arms and the hands signifying this entity’s failure to surrender to the loss of control over the life. Thus this drama is enacted in the physical distortion complex.  
+  
+In the questioner we may see the desire not to be carrying the load it carries given as physical manifestation of the soreness of those muscles for carrying used. That which is truly needed to be carried is a pre-incarnative responsibility which seems highly inconvenient.  
+  
+In the case of the scribe we see a weariness and numbness of feelings ensuing from lack of using catalyst designed to sensitize this entity to quite significant influxes of unfamiliar distortion complexes of the mental/emotional and spiritual level. As the numbness removes itself from the higher or more responsive complexes the bodily complex distortions will vanish. This is true also of the other examples.  
+  
+We would note at this time that the totally efficient use of catalyst upon your plane is extremely rare.
+
+61.9: This brings out the point of the purpose for the physical incarnation, I believe. And that is to reach a conviction through your own thought processes as to a solution to problems and understandings in a totally unbiased or totally free situation with no proof at all or anything that you would consider proof, proof being a very poor word in itself. Can you expand on my concept?
+
+**Ra:** I am Ra. Your opinion is an eloquent one although somewhat confused in its connections between the freedom expressed by subjective knowing and the freedom expressed by subjective acceptance. There is a significant distinction between the two.  
+  
+This is not a dimension of knowing, even subjectively, due to the lack of overview of cosmic and other inpourings which affect each and every situation which produces catalyst. The subjective acceptance of that which is at the moment and the finding of love within that moment is the greater freedom.  
+  
+That known as the subjective knowing without proof is, in some degree, a poor friend for there will be anomalies no matter how much information is garnered due to the distortions which form third density.
+
+61.10: The third question I have here is, could you give examples of bodily polarity?
+
+**Ra:** I am Ra. Within the body there are many polarities which relate to the balancing of the energy centers of the various bodies of the unmanifested entity. It is well to explore these polarities for work in healing.  
+  
+Each entity is, of course, a potential polarized portion of an other-self.
+
+61.11: It says here it would seem the proper balancing exercises for all the sensations of the body would be some form of inactivity such as meditation or contemplation. Is this correct?
+
+**Ra:** I am Ra. This is largely incorrect. The balancing requires a meditative state in order for the work to be done. However, the balancing of sensation has to do with an analysis of the sensation with especial respect to any unbalanced leaning between the love and the wisdom or the positive and the negative. Then whatever is lacking in the balanced sensation is, as in all balancing, allowed to come into the being after the sensation is remembered and recalled in such detail as to overwhelm the senses.
 # Foods
 40.14: In dietary matters, what would be the foods that one would include and what would be the foods that one would exclude in a general way for the most or the greatest care of one’s bodily complex?
 - **Ra:** I am Ra. Firstly, we underline and emphasize that this information is not to be understood literally but as a link or psychological nudge for the body and the mind and spirit. Thus it is the care and respect for the self that is the true thing of importance. In this light we may iterate the basic information given for this instrument’s diet. The vegetables, the fruits, the grains, and to the extent necessary for the individual metabolism, the animal products. These are those substances showing respect for the self. In addition, though this has not been mentioned, for this instrument is not in need of purification, those entities in need of purging the self of a poison thought-form or emotion complex do well to take care in following a program of careful fasting until the destructive thought-form has been purged analogously with the by-products of ridding the physical vehicle of excess material. Again you see the value not to the body complex but used as a link for the mind and spirit. Thus self reveals self to self.
+- 

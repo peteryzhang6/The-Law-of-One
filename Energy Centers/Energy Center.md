@@ -163,3 +163,35 @@ To answer your second question more fully we may say that it is correct that rad
 Again, the violet emanation is, in this context, a resource from which, through indigo, intelligent infinity may be contacted. The radiation thereof will not be violet ray but rather green, blue, or indigo depending upon the nature of the type of intelligence which infinity has brought through into discernible energy.
 
 The green-ray type of radiation in this case is the healing, the blue-ray the communication and inspiration, the indigo that energy of the adept which has its place in faith.
+
+61.3: Can you expand on what you meant by the “cycling instreamings of energy?”
+
+**Ra:** I am Ra. There are four types of cycles which are those given in the moment of entry into incarnation. There are in addition more cosmic and less regularized inpourings which, from time to time, affect a sensitized mind/body/spirit complex. The four rhythms are, to some extent, known among your peoples and are called biorhythms.  
+  
+There is a fourth cycle which we may call the cycle of gateway of magic of the adept or of the spirit. This is a cycle which is completed in approximately eighteen of your diurnal cycles.  
+  
+The cosmic patterns are also a function of the moment of incarnative entrance and have to do with your satellite you call the moon, your planets of this galaxy, the galactic sun, and in some cases the instreamings from the major galactic points of energy flow.
+
+63.8: From last session, I would like to continue with a few questions about the fact that in fourth density red, orange, and green energies will be activated; yellow, blue, etc., being in potentiation. Right now, you say we have green energies activated. They have been activated for the last 45 years. I am wondering about the transition through this period so that the green is totally activated and the yellow is in potentiation. What will we lose as the yellow goes from activation into potentiation, and what will we gain as the green comes into total activation, and what is that process?
+
+**Ra:** I am Ra. It is misleading to speak of gains and losses when dealing with the subject of the cycle’s ending and the green-ray cycle beginning upon your sphere. It is to be kept in the forefront of the faculties of intelligence that there is one creation in which there is no loss. There are progressive cycles for experiential use by entities. We may now address your query.  
+  
+As the green-ray cycle or the density of love and understanding begins to take shape the yellow-ray plane or Earth which you now enjoy in your dance will cease to be inhabited for some period of your space/time as the space/time necessary for fourth-density entities to learn their ability to shield their density from that of third is learned. After this period there will come a time when third density may again cycle on the yellow-ray sphere.  
+  
+Meanwhile there is another sphere, congruent to a great extent with yellow ray, forming. This fourth-density sphere coexists with first, second, and third. It is of a denser nature due to the rotational core atomic aspects of its material. We have discussed this subject with you.  
+  
+The fourth-density entities which incarnate at this space/time are fourth density in the view of experience but are incarnating in less dense vehicles due to desire to experience and aid in the birth of fourth density upon this plane.  
+  
+You may note that fourth-density entities have a great abundance of compassion.
+
+63.29: Is there a clock-like face, shall I say, associated with the entire major galaxy of many billions of stars so that as it revolves, it carries all of these stars and planetary systems through transitions from density to density? Is this how it works?
+
+**Ra:** I am Ra. You are perceptive. You may see a three-dimensional clock face or spiral of endlessness which is planned by the Logos for this purpose.
+
+63.30: I understand that the [[Logos]] did not plan for the heating effect that occurs in our third-density transition into fourth. Is this correct?
+
+**Ra:** I am Ra. This is correct except for the condition of free will which is, of course, planned by the Logos as It, Itself, is a creature of free will. In this climate an infinity of events or conditions may occur. They cannot be said to be planned by the Logos but can be said to have been freely allowed.
+
+63.32: When the third density goes out of activation and into potentiation that will leave us with a planet that is first, second, and fourth density. At that time there will be no activated third-density vibrations on this planet. Am I correct in assuming that all third-density vibrations on this planet now are those vibrations that compose the bodily complexes of entities such as us; and that that is the sum total of third-density vibrations on this planet at this time?
+
+**Ra:** I am Ra. To answer your query, this is incorrect only in that in addition to the mind/body/spirit complexes of third density there are the artifacts, thought-forms, and feelings which these co-Creators have produced. This is third density.

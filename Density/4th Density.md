@@ -101,3 +101,27 @@
 - In positive, the fifth-density complex uses sixth-density teach/learners to study the more illuminated understandings of unity thus becoming more and more wise. Fifth-density positive social memory complexes often will choose to divide their service to others in two ways: first, the beaming of light to creation; second, the sending of groups to be of aid as instruments of light such as those whom you’re familiar with through channels.
 - In fifth-density negative, service to self has become extremely intense and the self has shrunk or compacted so that the dialogues with the teach/learners are used exclusively in order to intensify wisdom. There are very, very few fifth-density negative Wanderers for they fear the forgetting. There are very, very few fifth-density Orion members for they do not any longer perceive any virtue in other-selves.
 - Ra: You must see the Earth, as you call it, as being seven Earths. There is red, orange, yellow, and there will soon be a completed green color vibratory locus for fourth-density entities which they will call Earth. During the fourth-density experience, due to the lack of development of fourth-density entities, the third-density planetary sphere is not useful for habitation since the early fourth-density entity will not know precisely how to maintain the illusion that fourth density cannot be seen or determined from any instrumentation available to any third density. Thus in fourth density the red, orange, and green energy nexi of your planet will be activated while the yellow is in potentiation along with the blue and the indigo.
+
+63.21: Now, are there any inhabitants at this time of this fourth-density sphere who have already gone through this process. Is it now being populated?
+
+**Ra:** I am Ra. This is correct only in the very, shall we say, recent past.
+
+63.24: Then as the fourth-density sphere is activated there is heat energy being generated. I assume this heat energy is generated in the third-density sphere only. Is this correct?
+
+**Ra:** I am Ra. This is quite correct. The experiential distortions of each dimension are discrete.
+
+63.25: Then at some time in the future the fourth-density sphere will be fully activated. What is the difference between full activation and partial activation for this sphere?
+
+**Ra:** I am Ra. At this time the cosmic influxes are conducive to true-color green core particles being formed and material of this nature thus being formed. However, there is a mixture of the yellow-ray and green-ray environments at this time necessitating the birthing of transitional mind/body/spirit complex types of energy distortions. At full activation of the true-color green density of love the planetary sphere will be solid and inhabitable upon its own and the birthing that takes place will have been transformed through the process of time, shall we say, to the appropriate type of vehicle to appreciate in full the fourth-density planetary environment. At this nexus the green-ray environment exists to a far greater extent in time/space than in space/time.
+
+63.26: Could you describe the difference that you are speaking of with respect to time/space and space/time?
+
+**Ra:** I am Ra. For the sake of your understanding we will use the working definition of inner planes. There is a great deal of subtlety invested in this sound vibration complex, but it, by itself, will perhaps fulfill your present need.
+
+63.27: I will make this statement, and you correct me. What we have is, as our planet is spiraled by the spiraling action of the entire major galaxy, as the big wheel in the sky turns and our planetary system spirals into the new position, the fourth-density vibrations become more and more pronounced. These atomic core vibrations begin to create, more and more completely, the green, that is the green core vibrations complete more and more completely the fourth-density sphere and the fourth-density bodily complexes for inhabitation of that sphere. Is this correct?
+
+**Ra:** I am Ra. This is partially correct. To be corrected is the concept of the creation of green-ray density bodily complexes. This creation will be gradual and will take place beginning with your third-density type of physical vehicle and, through the means of bisexual reproduction, become by evolutionary processes, the fourth-density body complexes.
+
+63.28: Then are these entities of which we spoke, the third-density harvestable who have been transferred, are they the ones who then will, by bisexual reproduction, create the fourth-density complexes that are necessary?
+
+**Ra:** I am Ra. The influxes of true-color green energy complexes will more and more create the conditions in which the atomic structure of cells of bodily complexes is that of the density of love. The mind/body/spirit complexes inhabiting these physical vehicles will be, and to some extent, are, those of whom you spoke and, as harvest is completed, the harvested entities of this planetary influence.

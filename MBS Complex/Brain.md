@@ -26,3 +26,9 @@ Those not truly sincerely requesting this energy may yet feel it if the entities
 **Ra:** I am Ra. The most normal for the adept is the following: the indigo stimulation activating that great gateway into healing, magical work, prayerful attention, and the radiance of being; and the stimulation of the violet ray which is the spiritual giving and taking from and to Creator, from Creator to Creator.  
   
 This is a desirable configuration.
+
+61.13: Could you tell us the purpose of the frontal lobes of the brain and the conditions necessary for their activation?
+
+**Ra:** I am Ra. The frontal lobes of the brain will, shall we say, have much more use in fourth density.  
+  
+The primary mental/emotive condition of this large area of the so-called brain is joy or love in its creative sense. Thus, the energies which we have discussed in relationship to the pyramids — all of the healing, the learning, the building, and the energizing — are to be found in this area. This is the area tapped by the adept. This is the area which, working through the trunk and root of mind, makes contact with intelligent energy and through this gateway, intelligent infinity.
