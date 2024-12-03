@@ -195,3 +195,7 @@ You may note that fourth-density entities have a great abundance of compassion.
 63.32: When the third density goes out of activation and into potentiation that will leave us with a planet that is first, second, and fourth density. At that time there will be no activated third-density vibrations on this planet. Am I correct in assuming that all third-density vibrations on this planet now are those vibrations that compose the bodily complexes of entities such as us; and that that is the sum total of third-density vibrations on this planet at this time?
 
 **Ra:** I am Ra. To answer your query, this is incorrect only in that in addition to the mind/body/spirit complexes of third density there are the artifacts, thought-forms, and feelings which these co-Creators have produced. This is third density.
+
+66.20: I have a written question, two of them actually. The first is would you please list the polarities within the body which are related to the balancing of the energy centers of the various bodies of the unmanifested entity?
+
+**Ra:** I am Ra. In this question there lies a great deal of thought which we appreciate. It is possible that the question itself may serve to aid meditations upon this particular subject. Each unmanifested self is unique. The basic polarities have to do with the balanced vibratory rates and relationships between the first three energy centers and, to a lesser extent, each of the other energy centers.

@@ -20,3 +20,5 @@ It is the Gate to the essence of all life.
 常有，欲以观其徼 (jiao:四声)。
 此两者，同出而异名，同谓之玄。
 玄之又玄，众妙之门
+
+65.2: The generalities of expression can never be completely correct.

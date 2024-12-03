@@ -125,3 +125,26 @@
 63.28: Then are these entities of which we spoke, the third-density harvestable who have been transferred, are they the ones who then will, by bisexual reproduction, create the fourth-density complexes that are necessary?
 
 **Ra:** I am Ra. The influxes of true-color green energy complexes will more and more create the conditions in which the atomic structure of cells of bodily complexes is that of the density of love. The mind/body/spirit complexes inhabiting these physical vehicles will be, and to some extent, are, those of whom you spoke and, as harvest is completed, the harvested entities of this planetary influence.
+
+65.6: Would the coming changes as we progress into fourth density— I’m speaking of changes not only in the physical third-density planet due to the heating effect but also the changes that are heralding fourth-density vibrations such as the ability of people to perform what we term paranormal activities— I’m assuming that both of these are also and will act as catalyst to create a greater seeking. Is this correct?
+
+**Ra:** I am Ra. This is partially correct. The paranormal events occurring are not designed to increase seeking but are manifestations of those whose vibratory configuration enables these entities to contact the gateway to intelligent infinity. These entities capable of paranormal service may determine to be of such service on a conscious level. This, however, is a function of the entity and its free will and not the paranormal ability.  
+  
+The correct portion of your statements is the greater opportunity for service due to the many changes which will offer many challenges, difficulties, and seeming distresses within your illusion to many who then will seek to understand, if we may use this misnomer, the reason for the malfunctioning of the physical rhythms of their planet.  
+  
+Moreover, there exist probability/possibility vortices which spiral towards your bellicose actions. Many of these vortices are not of the nuclear war but of the less annihilatory but more lengthy so-called “conventional” war. This situation, if formed in your illusion, would offer many opportunities for seeking and for service.
+
+66.30: The planet has a certain set of conditions prior to transition into fourth density, that is in late third density, and then the conditions are different in early fourth density. Could you give me an example of a negatively polarized planet and the conditions [in] late third density and early fourth density so that I can see how they change?
+
+**Ra:** I am Ra. The vibrations from third to fourth density change on a negatively oriented planet precisely as they do upon a positively oriented planet. With fourth-density negative comes many abilities and possibilities of which you are familiar. The fourth density is more dense and it is far more difficult to hide the true vibrations of the mind/body/spirit complex. This enables fourth-density negatives, as well as positives, the chance to form social memory complexes. It enables negatively oriented entities the opportunity for a different set of parameters with which to show their power over others and to be of service to the self. The conditions are the same as far as the vibrations are concerned.
+
+66.31: I was concerned about the amount of physical distortions, disease, and that sort of thing in third-density negative just before harvest and in fourth-density negative just after harvest or in transition. What are the conditions of the physical problems, disease, etc., at late third-density negative?
+
+**Ra:** I am Ra. Each planetary experience is unique. The problems, shall we say, of bellicose actions are more likely to be of pressing concern to late third-density negative entities than the earth’s reactions to negativity of the planetary mind, for it is often by such warlike attitudes on a global scale that the necessary negative polarization is achieved.  
+  
+As fourth density occurs there is a new planet and new physical vehicle system gradually expressing itself and the parameters of bellicose actions become those of thought rather than manifested weapons.
+
+66.32: Well then is physical disease and illness as we know it on this planet rather widespread on a third-density negative planet just before harvest into fourth-density negative?
+
+**Ra:** I am Ra. Physical complex distortions of which you speak are likely to be less found as fourth-density negative begins to be a probable choice of harvest due to the extreme interest in the self which characterizes the harvestable third-density negative entity. Much more care is taken of the physical body as well as much more discipline being offered to the self mentally. This is an orientation of great self-interest and self-discipline. There are still instances of the types of disease which are associated with the mind complex distortions of negative emotions such as anger. However, in an harvestable entity these emotional distortions are much more likely to be used as catalyst in an expressive and destructive sense as regards the object of anger.
+

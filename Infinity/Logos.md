@@ -37,3 +37,12 @@ Check [[Law of Love]]
 54.10: Then I will assume that the Creator in Its intelligent appraisal of a way of knowing Itself, created the concept of the seven areas of knowing. Is this correct?
 
 **Ra:** I am Ra. This is partially incorrect. The Logos creates light. The nature of this light thus creates the nature of the catalytic and energetic levels of experience in the creation. Thus it is that the highest of all honor/duties, that given to those of the next octave, is the supervision of light in its manifestations during the experiential times, if you will, of your cycles.
+
+65.17: Then we deal with an entity that has not yet formed a social memory but is yet an entity just as one of us can be called a single entity. Can we continue this observation of the, shall I say, conglomerate entity through the galactic entity, or shall I say, small planetary system type of— Let me try to phrase it this way. Could I look at a single sun in its planetary system as an entity and then look at a major galaxy with its billions of stars as an entity? Can I continue this extrapolation in this way?
+
+**Ra:** I am Ra. You can but not within the framework of third-density space/time.  
+  
+Let us attempt to speak upon this interesting subject. In your space/time you and your peoples are the parents of that which is in the womb. The Earth, as you call it, is ready to be born and the delivery is not going smoothly. When this entity has become born it will be instinct with the social memory complex of its parents which have become fourth-density positive. In this density there is a broader view.  
+  
+You may begin to see your relationship to the Logos or sun with which you are most intimately associated. This is not the relationship of parent to child but of Creator, that is Logos, to Creator that is the mind/body/spirit complex, as Logos. When this realization occurs you may then widen the field of “eyeshot,” if you will, infinitely recognizing parts of the Logos throughout the one infinite creation and feeling, with the roots of Mind informing the intuition, the parents aiding their planets in evolution in reaches vast and unknown in the creation, for this process occurs many, many times in the evolution of the creation as an whole.
+

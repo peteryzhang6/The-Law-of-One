@@ -236,3 +236,31 @@ S58
 S59
 
 S60: 10, 16
+
+65.20: I don’t know if this question is related to what I am trying to get at or not, but I’ll ask it and see. You mentioned in speaking of the pyramids that the resonating chamber was used so that the adept could meet the self. Would you explain what you meant by that?
+
+**Ra:** I am Ra. One meets the self in the center or deeps of the being. The so-called resonating chamber may be likened unto the symbology of the burial and resurrection of the body wherein the entity dies to self and through this confrontation of apparent loss and realization of essential gain, is transmuted into a new and risen being.
+
+65.21: Could I make the analogy of in this apparent death losing the desires that are the illusory, common desires of third density and gaining the desires of total service to others?
+
+**Ra:** I am Ra. You are perceptive. This was the purpose and intent of this chamber as well as forming a necessary portion of the King’s Chamber position’s effectiveness.
+
+65.22: Can you tell me what this chamber did to the entity to create this awareness in him?
+
+**Ra:** I am Ra. This chamber worked upon the mind and the body. The mind was affected by sensory deprivation and the archetypical reactions to being buried alive with no possibility of extricating the self. The body was affected both by the mind configuration and by the electrical and piezoelectrical properties of the materials which were used in the construction of the resonating chamber.
+
+66.22: You mentioned that an energizing spiral is emitted from the top of any pyramid and that you could benefit by placing this under the head for a period of thirty minutes or less. Can you tell me how this third spiral is helpful and what help it gives the entity who is receiving it?
+
+**Ra:** I am Ra. There are substances which you may ingest which cause the physical vehicle to experience distortions towards an increase of energy. These substances are crude, working rather roughly upon the body complex increasing the flow of adrenaline.  
+  
+The vibration offered by the energizing spiral of the pyramid is such that each cell, both in space/time and in time/space, is charged as if hooked to your electricity. The keenness of mind, the physical and sexual energy of body, and the attunement of will of spirit are all touched by this energizing influence. It may be used in any of these ways. It is possible to over-charge a battery, and this is the cause of our cautioning any who use such pyramidal energies to remove the pyramid after a charge has been received.
+
+66.23: Is there a best material or optimal size for the small pyramid to go beneath the head?
+
+**Ra:** I am Ra. Given that the proportions are such as to develop the spirals in the Giza pyramid, the most appropriate size for use beneath the head is an overall height small enough to make placing it under the cushion of the head a comfortable thing.
+
+66.24: There’s no best material?
+
+**Ra:** I am Ra. There are better materials which are, in your system of barter, quite dear. They are not that much better than substances which we have mentioned before. The only incorrect substances would be the baser metals.
+
+66.25, 26, 27, 28, 

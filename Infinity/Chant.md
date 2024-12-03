@@ -5,6 +5,8 @@ aliases:
 # Chant
 Check [[Prayer]] on the purpose of chants.
 
+Also check [[Magick Ritual]]
+
 #TODO I categorized to my best ability of chants into its respective consciousness density. Will need to create instructions on how to create personalized chants if one so have the distortion towards that.
 
 15.14: We(Ra) can only encourage these lines of contemplation, always stating the prerequisite of meditation, contemplation, or prayer as a means of subjectively/objectively using or combining various understandings to enhance the seeking process. Without such a method of reversing the analytical process, one could not integrate into unity the many understandings gained in such seeking.
@@ -29,7 +31,7 @@ Chants focused on the Beingness of [[1st Density]] consciousness
 - the blessing of water (cold, moist)
 - the blessing of earth (cold, dry)
 - the blessing of fire (hot, dry)
-- - blessing of air/fire/earth (cigarettes) (hot, moist)/(hot, dry)/(cold, dry) = (hot, dry) = air bending
+- blessing of air/fire/earth (cigarettes) (hot, moist)/(hot, dry)/(cold, dry) = (hot, dry) = air bending
 	- though fire and earth, do the air gives me warmth and energy
 # 2D
 Chants focusing on the Movement of [[2nd Density]] consciousness

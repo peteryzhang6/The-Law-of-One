@@ -170,3 +170,39 @@ While it is a primary priority to activate or unblock each energy center, it is 
 **Ra:** I am Ra. It is partially and even substantially correct. There is an energy in each of the centers needed to keep the mind/body/spirit complex, which is the vehicle for experience, in correct conformation and composition. Both negative and positive entities do well to reserve this small portion of each center for the maintenance of the integrity of the mind/body/spirit complex. After this point, however, it is correct that the negative will use the three lower centers for separation from and control over others by sexual means, by personal assertion, and by action in your societies.  
   
 Contrary-wise, the positively oriented entity will be transmuting strong red-ray sexual energy into green-ray energy transfers and radiation in blue and indigo and will be similarly transmuting selfhood and place in society into energy transfer situations in which the entity may merge with and serve others and then, finally, radiate unto others without expecting any transfer in return.
+
+64.10: previous session you mentioned the gateway of magic for the adept occurring in eighteen-day cycles. Could you expand on that information please?
+
+**Ra:** I am Ra. The mind/body/spirit complex is born under a series of influences, both lunar, planetary, cosmic, and in some cases, karmic. The moment of the birthing into this illusion begins the cycles we have mentioned.  
+  
+The spiritual or adept’s cycle is an eighteen-day cycle and operates with the qualities of the sine wave. Thus there are a few excellent days on the positive side of the curve, that being the first nine days of the cycle — precisely the fourth, the fifth, and the sixth — when workings are most appropriately undertaken, given that the entity is still without total conscious control of its mind/body/spirit distortion/reality.  
+  
+The most interesting portion of this information, like that of each cycle, is the noting of the critical point wherein passing from the ninth to the tenth and from the eighteenth to the first days the adept will experience some difficulty especially when there is a transition occurring in another cycle at the same time. At the nadir of each cycle the adept will be at its least powerful but will not be open to difficulties in nearly the degree that it experiences at critical times.
+
+64.11: Then to find the cycles we would take the instant of birth and the emerging of the infant from the mother into this density and start the cycle at that instant and continue it through the life. Is this correct?
+
+**Ra:** I am Ra. This is mostly correct. It is not necessary to identify the instant of birthing. The diurnal cycle upon which this event occurs is satisfactory for all but the most fine workings.
+
+64.12: Now, am I correct in assuming that whatever magic the adept would perform would be more successful or, shall we say, more to his design than that performed at less opportune times in the cycle?
+
+**Ra:** I am Ra. This cycle is an helpful tool to the adept but as we said, as the adept becomes more balanced the workings designed will be dependent less and less upon these cycles of opportunity and more and more even in their efficacy.
+
+64.13: I have no ability to judge at what point, at what level of abilities the adept would reach this point of being, shall we say, independent of the cyclical action. Can you give me an indication of what level of “adeptness” that would be necessary to be so independent?
+
+**Ra:** I am Ra. We are fettered from speaking specifically due to this group’s work, for to speak would seem to be to judge. However, we may say that you may consider this cycle in the same light as the so-called astrological balances within your group; that is, they are interesting but not critical.
+
+66.33: I am trying to understand the way that disease and bodily distortions are generated with respect to polarities, both positive and negative. It seems that they are generated in some way to create the split or polarization, that they have a function in creating the original polarization that occurs in third-density. Is this correct?
+
+**Ra:** I am Ra. This is not precisely correct. Distortions of the bodily or mental complex are those distortions found in beings which have need of experiences which aid in polarization. These polarizations may be those of entities which have already chosen the path or polarization to be followed.  
+  
+It is more likely for positively oriented individuals to be experiencing distortions within the physical complex due to the lack of consuming interest in the self and the emphasis on service to others. Moreover, in an unpolarized entity catalyst of the physical distortion nature will be generated at random. The hopeful result is, as you say, the original choice of polarity. Oftentimes this choice is not made but the catalyst continues to be generated. In the negatively oriented individual the physical body is likely to be more carefully tended and the mind disciplined against physical distortions.
+
+66.34: This planet, to me, seems to be what I would call a cesspool of distortions. This includes all diseases and malfunctions of the physical body in general. It would seem to me that, on the average, this planet would be very, very high on the list if we just took the overall amount of these problems. Am I, is my feeling correct in this assumption?
+
+**Ra:** I am Ra. We will review previous material.  
+  
+Catalyst is offered to the entity. If it is not used by the mind complex it will then filter through to the body complex and manifest as some form of physical distortion. The more efficient the use of catalyst, the less physical distortion to be found.  
+  
+There are, in the case of those you call Wanderers, not only a congenital difficulty in dealing with the third-density vibratory patterns but also a recollection, however dim, that these distortions are not necessary or usual in the home vibration.  
+  
+We over-generalize as always, for there are many cases of pre-incarnative decisions which result in physical or mental limitations and distortions, but we feel that you are addressing the question of widespread distortions towards misery of one form or another. Indeed, on some third-density planetary spheres catalyst has been used more efficiently. In the case of your planetary sphere there is much inefficient use of catalyst and, therefore, much physical distortion.

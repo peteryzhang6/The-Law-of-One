@@ -63,3 +63,98 @@ The seventh or violet ray is unimpaired, this being not only an energy receptor 
 1. [[The Mind#Healing|Healing of the Mind]]
 2. [[The Body#Healing|Healing of the Body]]
 3. [[The Spirit#Healing|Healing of the Spirit]]
+
+---
+
+64.15: Ra mentioned the ones Stuart and Douglas in a recent session. These are members of what we call our medical profession. What is the value, overall value, shall I say, of modern medical techniques in alleviating bodily distortions with respect to the purpose for these distortions and what we might call karma and other effects?
+
+**Ra:** I am Ra. This query is convoluted. However, we shall make some observations in lieu of attempting one coherent answer, for that which is allopathic among your healing practices is somewhat two-sided.  
+  
+Firstly, you must see the possibility/probability that each and every allopathic healer is in fact an healer. Within your cultural nexus this training is considered the appropriate means of perfecting the healing ability. In the most basic sense any allopathic healer may be seen to, perhaps, be one whose desire is service to others in alleviation of bodily complex and mental/emotional complex distortions so that the entity to be healed may experience further catalyst over a longer period of what you call the life. This is a great service to others when appropriate due to the accumulation of distortions toward wisdom and love which can be created through the use of the space/time continuum of your illusion.  
+  
+In observing the allopathic concept of the body complex as the machine we may note the symptomology of a societal complex seemingly dedicated to the most intransigent desire for the distortions of distraction, anonymity, and sleep. This is the result rather than the cause of societal thinking upon your plane.  
+  
+In turn this mechanical concept of the body complex has created the continuing proliferation of distortions towards what you would call ill-health due to the strong chemicals used to control and hide bodily distortions. There is a realization among many of your peoples that there are more efficacious systems of healing not excluding the allopathic but also including the many other avenues of healing.
+
+64.16: Let us assume that a bodily distortion occurs within a particular entity who then has a choice of seeking allopathic aid or experiencing the catalyst of the distortion and not seeking correction of the distortion. Can you comment on [the] two possibilities for this entity and his analysis of each path?
+
+**Ra:** I am Ra. If the entity is polarized towards service to others, analysis properly proceeds along the lines of consideration of which path offers the most opportunity for service to others.  
+  
+For the negatively polarized entity the antithesis is the case.  
+  
+For the unpolarized entity the considerations are random and most likely in the direction of the distortion towards comfort.
+
+64.20: In the healing exercises, when you say examine the sensations of the body, do you mean those sensations available to the body via the five senses or in relation to the natural functions of the body such as touching, loving, sexual sharing, and company, or are you speaking of something else altogether?
+
+**Ra:** I am Ra. The questioner may perceive its body complex at this moment. It is experiencing sensations. Most of these sensations or in this case, nearly all of them, are transient and without interest. However, the body is the creature of the mind. Certain sensations carry importance due to the charge or power which is felt by the mind upon the experience of this sensation.  
+  
+For instance, at this space/time nexus one sensation is carrying a powerful charge and may be examined. This is the sensation of what you call the distortion towards discomfort due to the cramped position of the body complex during this working. In balancing you would then explore this sensation. Why is this sensation powerful? Because it was chosen in order that the entity might be of service to others in energizing this contact.  
+  
+Each sensation that leaves the aftertaste of meaning upon the mind, that leaves the taste within the memory shall be examined. These are the sensations of which we speak.
+
+66.5: It seems to me that once the healer has become properly balanced and unblocked with respect to energy centers, it is possible for him to act in some way as a collector and focuser of light the same way that, or analogous to the way that a pyramid works, taking or collecting light through the left hand and emitting it through the right; this then, somehow, penetrating the first and seventh chakra envelope, vibratory envelope, you might say, of the body and allowing for the realignment of energy centers of the entity to be healed. I’m quite sure that I’m not exactly correct on this and possibly considerably off. Could you rearrange my thinking so that it makes sense?
+
+**Ra:** I am Ra. You are correct in your assumption that the crystallized healer is analogous to the pyramidal action of the King’s Chamber position. There are a few adjustments we might suggest.  
+  
+Firstly, the energy which is used is brought into the field complex of the healer by the outstretched hand used in a polarized sense. However, this energy circulates through the various points of energy to the base of the spine and, to a certain extent, the feet, thus coming through the main energy centers of the healer spiraling through the feet, turning at the red energy center towards a spiral at the yellow energy center and passing through the green energy center in a microcosm of the King’s Chamber energy configuration of prana; this then continuing for the third spiral through the blue energy center and being sent therefrom through the gateway back to intelligent infinity.  
+  
+It is from the green center that the healing prana moves into the polarized healing right hand and therefrom to the one to be healed.  
+  
+We may note that there are some who use the yellow-ray configuration to transfer energy and this may be done but the effects are questionable and, with regard to the relationship between the healer, the healing energy, and the seeker, questionable due to the propensity for the seeker to continue requiring such energy transfers without any true healing taking place in the absence of the healer due to the lack of penetration of the armoring shell of which you spoke.
+
+66.9: Now as the healer approaches an other-self to do the healing we have a situation where the other-self has, through programming of catalyst, possibly created a condition which is viewed as a condition needing healing. What is the situation and what are the ramifications of the healer acting upon a condition of programmed catalyst to bring about healing? Am I correct in assuming that in doing this healing, the programmed catalyst is useful to the one to be healed in that the one to be healed then becomes aware of what it wished to become aware of in programming the catalyst? Is this correct?
+
+**Ra:** I am Ra. Your thinking cannot be said to be completely incorrect but shows a rigidity which is not apparent in the flow of the experiential use of catalyst.  
+  
+The role of the healer is to offer an opportunity for realignment or aid in realignment of either energy centers or some connection between the energies of mind and body, spirit and mind, or spirit and body. This latter is very rare.  
+  
+The seeker will then have the reciprocal opportunity to accept a novel view of the self, a variant arrangement of patterns of energy influx. If the entity, at any level, desires to remain in the configuration of distortion which seems to need healing it will do so. If, upon the other hand, the seeker chooses the novel configuration, it is done through free will.  
+  
+This is one great difficulty with other forms of energy transfer in that they do not carry through the process of free will as this process is not native to yellow ray.
+
+66.10: What is the difference, philosophically, between a mind/body/spirit complex healing itself through mental, shall I say, configuration or it being healed by an healer?
+
+**Ra:** I am Ra. You have a misconception. The healer does not heal. The crystallized healer is a channel for intelligent energy which offers an opportunity to an entity that it might heal itself.  
+  
+In no case is there an other description of healing. Therefore, there is no difference as long as the healer never approaches one whose request for aid has not come to it previously. This is also true of the more conventional healers of your culture and if these healers could but fully realize that they are responsible only for offering the opportunity of healing, and not for the healing, many of these entities would feel an enormous load of misconceived responsibility fall from them.
+
+66.11: Then in seeking healing a mind/body/spirit complex would then be seeking in some cases a source of gathered and focused light energy. This source could be another mind/body/spirit complex sufficiently crystallized for this purpose or the pyramid shape, or possibly something else. Is this correct?
+
+**Ra:** I am Ra. These are some of the ways an entity may seek healing. Yes.
+
+66.12: Could you tell me the other ways that the entity could seek healing?
+
+**Ra:** I am Ra. Perhaps the greatest healer is within the self and may be tapped with continued [[meditation]] as we have suggested.  
+  
+The many forms of healing available to your peoples each have virtue and may be deemed appropriate by any seeker who wishes to alter the physical complex distortions or some connection between the various portions of the mind/body/spirit complex thereby.
+
+66.13: I have observed many activities known as psychic surgery in the area of the Philippine Islands. It was my assumption that these healers are providing what I would call a training aid or a way of creating a reconfiguration of the mind of the patient to be healed as the relatively naïve patient observes the action of the healer in seeing the materialized blood, etc., then reconfigures the roots of mind to believe, you might say, the healing is done and, therefore, heals himself. Is this analysis that I made correct?
+
+**Ra:** I am Ra. This is correct. We may speak slightly further upon this type of opportunity.  
+  
+There are times when the malcondition to be altered is without emotional, mental, or spiritual interest to the entity and is merely that which has, perhaps by chance genetic arrangement, occurred. In these cases that which is apparently dematerialized will remain dematerialized and may be observed as so by any observer. The malcondition which has an emotional, mental, or spiritual charge is likely not to remain dematerialized in the sense of the showing of the objective referent to an observer. However, if the opportunity has been taken by the seeker the apparent malcondition of the physical complex will be at variance with the actual health, as you call this distortion, of the seeker and the lack of experiencing the distortions which the objective referent would suggest still held sway.  
+  
+For instance, in this instrument the removal of three small cysts was the removal of material having no interest to the entity. Thus these growths remained dematerialized after the so-called psychic surgery experience. In other psychic surgery the kidneys of this instrument were carefully offered a new configuration of beingness which the entity embraced. However, this particular portion of the mind/body/spirit complex carried a great deal of emotional, mental, and spiritual charge due to this distorted functioning being the cause of great illness in a certain configuration of events which culminated in this entity’s conscious decision to be of service. Therefore, any objective scanning of this entity’s renal complex would indicate the rather extreme dysfunctional aspect which it showed previous to the psychic surgery experience, as you call it.  
+  
+The key is not in the continuation of the dematerialization of distortion to the eye of the beholder but rather lies in the choosing of the newly materialized configuration which exists in time/space.
+
+66.14: Would you explain that last comment about the configuration in time/space?
+
+**Ra:** I am Ra. Healing is done in the time/space portion of the mind/body/spirit complex, is adopted by the form-making or etheric body, and is then given to the space/time physical illusion for use in the activated yellow-ray mind/body/spirit complex. It is the adoption of the configuration which you call health by the etheric body in time/space which is the key to what you call health, not any event which occurs in space/time. In this process you may see the transdimensional aspect of what you call will, for it is the will, the seeking, the desire of the entity which causes the indigo body to use the novel configuration and to reform the body which exists in space/time. This is done in an instant and may be said to operate without regard to time. We may note that in the healing of very young children there is often an apparent healing by the healer in which the young entity has no part. This is never so, for the mind/body/spirit complex in time/space is always capable of willing the distortions it chooses for experience no matter what the apparent age, as you call it, of the entity.
+
+66.15: Is this desire and will that operates through to the time/space section a function only of the entity who is healed or is it also the function of the healer, the [[Crystallized Entity|crystallized]] healer?
+
+**Ra:** I am Ra. May we take this opportunity to say that this is the activity of the Creator. To specifically answer your query the crystallized healer has no will. It offers an opportunity without attachment to the outcome, for it is aware that all is one and that the Creator is knowing Itself.
+
+66.16: Then the desire must be strong within the mind/body/spirit complex who seeks healing to be healed in order for the healing to occur? Is this correct?
+
+**Ra:** I am Ra. This is correct on one level or another. An entity may not consciously seek healing and yet subconsciously be aware of the need to experience the new set of distortions which result from healing. Similarly an entity may consciously desire healing greatly but within the being, at some level, find some cause whereby certain configurations which seem quite distorted are, in fact, at that level, considered appropriate.
+
+66.17: I assume that the reason for assuming the distortions appropriate would be that these distortions would aid the entity in its reaching its ultimate objective which is a movement along the path of evolution in the desired polarity. Is this correct?
+
+**Ra:** I am Ra. This is correct.
+
+66.18: Then in the case of an entity who becomes aware of its polarization with respect to service to others it might find a paradoxical situation in the case where it was unable to fully serve because of distortions chosen to reach that understanding which it has reached. At this point it would seem that the entity who was aware of the mechanism might, through meditation, understand the necessary mental configuration for alleviating the physical distortion so that it could be of greater service to others at this particular nexus. Am I correct in this thinking?
+
+**Ra:** I am Ra. You are correct although we might note that there are often complex reasons for the programming of a distorted physical complex pattern. In any case, meditation is always an aid to knowing the self.
+

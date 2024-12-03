@@ -62,3 +62,7 @@ The more advanced the entity, the more tenuous the connection between the sub-Lo
 **Ra:** I am Ra. We find your query indeterminate but can respond that the number of those which have mastered outer catalyst completely is quite small.  
   
 Most of those harvestable at this space/time nexus have partial control over the outer illusion and are using the outer catalyst to work upon some bias which is not yet in balance.
+
+65.16: Now the added catalyst at the end of the cycle is a function specifically of the orientation of the consciousness that inhabits the planet. The consciousness has provided the catalyst for itself in orienting its thinking in the way it has oriented it, thus acting upon itself the same as catalyst of bodily pain and disease act upon the single mind/body/spirit complex. I made this analogy once before but reiterate it at this time to clarify my own thinking in seeing the planetary entity as somewhat of a single entity made up of billions of mind/body/spirit complexes. Is my viewpoint correct?
+
+**Ra:** I am Ra. You are quite correct.

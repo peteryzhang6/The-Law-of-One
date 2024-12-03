@@ -9,7 +9,7 @@
 [The Law of One by Ra - A Humble Messenger of The Law of One](https://www.lawofone.info/) 
 
 > [!NOTE]
-> One may find difficulty in reading the material of Law of One and other spiritual materials, as did I too experienced difficulty in understanding the Law of One when I first started reading it in Fall of 2020 and I only completed Book 1 of Law of One. I experience great pain and difficulty in merging the Law of One with other spiritual materials with my personal experience through 2020 to 2022. 
+> One may find difficulty in reading the material of Law of One and other spiritual materials, as did I too experienced difficulty in understanding the Law of One when I first started reading it in Fall of 2020 and I only completed Book 1 of Law of One. I experience great pain and difficulty during 2020 to 2022 in merging the Law of One with other spiritual materials with my personal experience. 
 > 
 > In 2023-2024, I again read through Book 1 to Book 4 to session 90+, but this time was able to learn and understand materials previously not understood. 
 > 
@@ -38,6 +38,7 @@ The repo currently contains files I created previously in other locations, thus 
 	- The understanding of this repo came from connecting experiences within Peter Yunpeng Zhang repo, but I think it is somewhat unnecessary to release that repo as one can use the understanding from this repo to work on their own life experiences and arrive at the same understanding
 		- Please check [[Mind-Body-Spirit Complex]]
 		- 35.1: It is to be noted that in discussing those who are well-known among your peoples there is the possibility that information may be seen to be specific to one entity whereas in actuality the great design of experience is much the same for each entity. It is with this in mind that we would discuss the experiential forces which offered catalyst to an individual.
+		- 64.8
 	- This repo is large can be seen as the healing of the mind in [[LOO Healing]]. To see the Creator that lies in the mind of self and other selves.
 - [Jar of Water of Life](https://github.com/peteryzhang6/Jar-of-Water-of-Life)
 	- An experiment born out of the understanding of Oneness

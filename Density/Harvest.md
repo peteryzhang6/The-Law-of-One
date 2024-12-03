@@ -68,3 +68,24 @@ The second class of those who ward this process are those of the Confederation w
 The third group watching over this process is that group you call the Guardians. This group is from the octave above our own and serves in this manner as light-bringers. These Guardians provide the precise emissions of light/love in exquisitely fastidious disseminations of discrimination so that the precise light/love vibration of each entity may be ascertained.  
   
 Thus the harvest is automatic in that those harvested will respond according to that which is unchangeable during harvest. That is the violet-ray emanation. However, these helpers are around to ensure a proper harvesting so that each entity may have the fullest opportunity to express its violet-ray selfhood.
+
+65.13: How common in the universe is a mixed harvest for a planet of both positively and negatively oriented mind/body/spirit complexes?
+
+**Ra:** I am Ra. Among planetary harvests which yield an harvest of mind/body/spirit complexes approximately 10% are negative; approximately 60% are positive; and approximately 30% are mixed with nearly all harvest being positive. In the event of mixed harvest it is almost unknown for the majority of the harvest to be negative. When a planet moves strongly towards the negative there is almost no opportunity for harvestable positive polarization.
+
+65.13: Can you tell me why there is almost no opportunity in that case?
+
+**Ra:** The ability to [[Polarization|polarize]] positively requires a certain degree of self determination.
+
+65.14: Then as these final days of the cycle transpire if the harvest were to occur now, today, it would have a certain number harvested positively and negatively and a certain number of repeaters. I am going to assume that because of the catalyst which will be experienced between now and the actual harvesting time these numbers of harvestable entities will increase.  
+  
+Generally speaking, not particularly with respect to this planet but with respect to general experience, shall we say, in harvesting, how big an increase in harvestable entities can you logically assume will occur because of the catalyst that occurs in the final period such as this one, or am I making a mistake in assuming that other planets have added catalyst at the end of a harvesting period when they have a mixed harvest?
+
+**Ra:** I am Ra. In the event of mixed harvest there is nearly always disharmony and, therefore, added catalyst in the form of your so-called “Earth changes.” In this assumption you are correct.  
+  
+It is the Confederation’s desire to serve those who may indeed seek more intensely because of this added catalyst. We do not choose to attempt to project the success of added numbers to the harvest for this would not be appropriate. We are servants. If we are called, we shall serve with all our strength. To count the numbers is without virtue.
+
+66.29: In a transition from third to fourth density we have two other possibilities other than the type that we are experiencing now. We have the possibility of a totally positively polarized harvest and the possibility of a totally negatively polarized harvest that I understand have occurred elsewhere in the universe many times. When there is a totally negatively polarized harvest, when a whole planet, that is, has negatively polarized and makes the transition from third to fourth density, does the planet have the experience of the distortion of disease that this planet now experiences prior to that transition?
+
+**Ra:** I am Ra. You are perceptive. The negative harvest is one of intense disharmony and the planet will express this.
+
