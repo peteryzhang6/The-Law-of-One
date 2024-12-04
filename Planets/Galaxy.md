@@ -27,3 +27,23 @@
 
 40.2: Our astronomers have noticed that the light from spiral galaxies is approximately seven times less than it should be, from their calculations of what their mass should be. I was just wondering if that was due to the increase of spiritual mass in the galaxies in what we call white dwarf stars?
 - **Ra:** I am Ra. This is basically correct and is a portion of the way or process of creation’s cycle.
+
+71.9: Are the processes that we are talking about processes that occur on many planets in our Milky Way Galaxy, or do they occur on all planets, or what percentage?
+
+**Ra:** I am Ra. These processes occur upon all planets which have given birth to sub-Logoi such as yourselves. The percentage of inhabited planets is approximately 10%.
+
+71.10: What percentage of stars, roughly, have planetary systems?
+
+**Ra:** I am Ra. This is unimportant information, but harmless. Approximately 32% of stars have planets as you know them while another 6% have some sort of clustering material which upon some densities might be inhabitable.
+
+71.11: **Questioner:** Well, this would tell me that roughly 3% of all stars have inhabited planets, which would just give a, shall I say, mind-boggling idea of the number of entities which… I assume then this process of evolution is in use throughout the known universe. Is this correct?
+
+**Ra:** I am Ra. This octave of infinite knowledge of the One Creator is as it is throughout the One Infinite Creation, with variations programmed by sub-Logoi of what you call major galaxies and minor galaxies. These variations are not significant but may be compared to various regions of geographical location sporting various ways of pronouncing the same sound vibration complex or concept.
+
+71.12: **Questioner:** Then it seems to me from this that the sub-Logos such as our sun uses free will to modify only slightly a much more general idea of created evolution so that the general plan of created evolution, which seems then to be uniform throughout the One Infinite Creation, is for this process of the sub-Logoi to grow through the densities and, under the first distortion, find their way back to the original thought. Is this correct?
+
+**Ra:** I am Ra. This is correct.
+
+71.13: **Questioner:** Then each entity is on a path that leads to the [[One Original Thought|one destination]]. This is like many, many roads which travel through many, many places but eventually merge into one large center. Is this correct?
+
+**Ra:** I am Ra. This is correct but somewhat wanting in depth of description. More applicable would be the thought that each entity contains within it all of the densities and sub-densities of the octave so that in each entity, no matter whither its choices lead it, its great internal blueprint is one with all others. Thusly its experiences will fall into the patterns of the journey back to the original Logos. This is done through free will but the materials from which choices can be made are one blueprint.

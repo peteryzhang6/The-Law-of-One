@@ -63,3 +63,18 @@ Jesus answered, “I am the way and the truth and the life. No one comes to the 
 20. Thus, by their fruit you will recognize them.
 
 - [[The Parable of the Sower]]
+
+---
+
+73.13: **Questioner:** What was the orientation with respect to this type of communication for the one known as Jesus of Nazareth?
+
+**Ra:** I am Ra. You may have read some of this entity’s workings. It offered itself as teacher to those mind/body/spirit complexes which gathered to hear and even then spoke as through a veil so as to leave room for those not wishing to hear. When this entity was asked to heal, it oft times did so, always ending the working with two admonitions: firstly, that the entity healed had been healed by its faith, that is, its ability to allow and accept changes through the violet ray into the gateway of intelligent energy; secondly, saying always, “Tell no one.” These are the workings which attempt a maximal quality of free will while maintaining fidelity to the positive purity of the working.
+
+73.14: **Questioner:** An observation of the working itself by another entity would seem to me to partially abridge free will in that a seemingly magical occurrence had taken place as a result of the working of an adept. This could be extended to any phenomenon which is other than normally acceptable. Could you speak on this paradox that is immediately the problem of anyone doing healing?
+
+**Ra:** I am Ra. We are humble messengers of the Law of One. To us there are no paradoxes. The workings which seem magical and, therefore, seem to infringe upon free will do not, in themselves, do so, for the distortions of perception are as many as the witnesses and each witness sees what it desires to see. Infringement upon free will occurs in this circumstance only if the entity doing the working ascribes the authorship of this event to its self or its own skills. Those who state that no working comes from it but only through it is not infringing upon free will.*
+
+73.16: **Questioner:** The one known as Jesus accumulated twelve disciples. What was his purpose in having these disciples with him?
+
+**Ra:** I am Ra. What is the purpose of teach/learning if there be no learn/teachers? Those drawn to this entity were accepted by this entity without regard for any outcome. This entity accepted the honor/duty placed upon it by its nature and its sense that to speak was its mission.
+

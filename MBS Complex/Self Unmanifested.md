@@ -32,3 +32,10 @@
 34.14: Can you give me the same type of information that we’ve been working on now with respect to the self relationship with war and rumors of war?
 - **Ra:** I am Ra. You may see this in relationship to your gadgets. This war and self relationship is a fundamental perception of the maturing entity. There is a great chance to accelerate in whatever direction is desired. One may polarize negatively by assuming bellicose attitudes for whatever reason. One may find oneself in the situation of war and polarize somewhat towards the positive activating orange, yellow, and then green by heroic, if you may call them this, actions taken to preserve the mind/body/spirit complexes of other-selves.
 - Finally, one may polarize very strongly fourth ray by expressing the principle of universal love at the total expense of any distortion towards involvement in bellicose actions. In this way the entity may become a conscious being in a very brief span of your time/space. This may be seen to be what you would call a traumatic progression. It is to be noted that among your entities a large percentage of all progression has as catalyst, trauma.
+
+71.5: **Questioner:** Define, please, the unmanifested being.
+
+**Ra:** I am Ra. We may see that you wish to pursue the deeper stratum of information. We shall, therefore, answer in a certain way which does not exhaust the query but is designed to move beneath the outer teachings somewhat.  
+  
+The unmanifested being is, as we have said, that being which exists and does its work without reference to or aid from other-selves. To move into this concept you may see the inevitable connection between the unmanifested self and the metaphysical or time/space analog of the space/time self. The activities of meditation, contemplation, and what may be called the internal balancing of thoughts and reactions are those activities of the unmanifested self more closely aligned with the metaphysical self.
+

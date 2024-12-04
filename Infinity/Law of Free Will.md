@@ -33,3 +33,34 @@ Thus to ignore the free will of other beings can be seen as one of the "worst" t
 54.13: Then I assume that the first distortion is the, shall I say, motivator or what allows this blockage. Is this correct?
 
 **Ra:** I am Ra. We wish no quibbling but prefer to avoid the use of terms such as the verb, to allow. Free will does not allow, nor would predetermination disallow, experiential distortions. Rather the Law of Confusion offers a free reach for the energies of each mind/body/spirit complex. The verb, to allow, would be considered pejorative in that it suggests a polarity between right and wrong or allowed and not allowed. This may seem a minuscule point. However, to our best way of thinking it bears some weight.
+
+72.7: **Questioner:** We have here, I believe, a very important principle with respect to the Law of One. You have stated that the attitude of the individual is of paramount importance for the Orion entity to be able to be effective. Would you please explain how this mechanism works with respect to the Law of One and why the attitude of the entity is of paramount importance and why this allows for action by the Orion entity?
+
+**Ra:** I am Ra. The Law of Confusion or Free Will is utterly paramount in the workings of the infinite creation. That which is intended has as much intensity of attraction to the polar opposite as the intensity of the intention or desire.  
+  
+Thus those whose desires are shallow or transitory experience only ephemeral configurations of what might be called the magical circumstance. There is a turning point, a fulcrum which swings as a mind/body/spirit complex tunes its will to service. If this will and desire is for service to others the corresponding polarity will be activated. In the circumstance of this group there are three such wills acting as one with the instrument in the, shall we say, central position of fidelity to service. This is as it must be for the balance of the working and the continuance of the contact. Our vibratory complex is one-pointed in these workings also and our will to serve is also of some degree of purity. This has created the attraction of the polar opposite which you experience.  
+  
+We may note that such a configuration of free will, one-pointed in service to others, also has the potential for the alerting of a great mass of light strength. This positive light strength, however, operates also under free will and must be invoked. We could not speak to this and shall not guide you, for the nature of this contact is such that the purity of your free will must, above all things, be preserved. Thus you wend your way through experiences discovering those biases which may be helpful.
+
+72.8: **Questioner:** The [[Service to Self|negatively oriented entities ]]who contact us and others on this planet are limited by the first distortion. They have obviously been limited by the banishing ritual just performed. Could you describe, with respect to free will, how they limit themselves in order to work within the first distortion and how the banishing ritual itself works?
+
+**Ra:** I am Ra. This query has several portions. Firstly, those of negative polarity do not operate with respect to free will unless it is necessary. They call themselves and will infringe whenever they feel it possible.  
+  
+Secondly, they are limited by the great Law of Confusion in that, for the most part, they are unable to enter this planetary sphere of influence and are able to use the windows of time/space distortion only insofar as there is some calling to balance the positive calling. Once they are here, their desire is conquest.  
+  
+Thirdly, in the instance of this instrument’s being removed permanently from this space/time, it is necessary to allow the instrument to leave its yellow-ray physical complex of its free will. Thus trickery has been attempted.  
+  
+The use of the light forms being generated is such as to cause such entities to discover a wall through which they can not pass. This is due to the energy complexes of the light beings and aspects of the One Infinite Creator invoked and evoked in the building of the wall of light.
+
+73.3: **Questioner:** Thank you. We would like to thank Ra at this time for the opportunity to be of service for those on this sphere who would like to have the information that we gain here to disseminate.  
+  
+You stated that free will, one-pointed in service to others had the potential of alerting a great mass of light strength. I assume that the same holds precisely true for the service-to-self polarity. Is this correct?
+
+**Ra:** I am Ra. This is incorrect but subtly so. In invocation and evocation of what may be termed negative entities or qualities, the expression alerts the positively oriented equivalent. However, those upon the service-to-others path wait to be called and can only send love.
+
+73.4: **Questioner:** What I was trying to get at was that this alerting of light strength is, as I see it, a process that must be totally a function of free will, as you say, and as the desire and will and purity of desire of the adept or operator increases, the alerting of light strength increases. Is this part of it the same for both positive and negative potentials and am I correct with this statement?
+
+**Ra:** I am Ra. To avoid confusion we shall simply restate for clarity your correct assumption.  
+  
+Those who are upon the service-to-others path may call upon the light strength in direct proportion to the strength and purity of their will to serve. Those upon the service-to-self path may call upon the dark strength in direct proportion to the strength and purity of their will to serve.
+

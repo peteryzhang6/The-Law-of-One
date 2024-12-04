@@ -115,3 +115,16 @@ When we were where we wished to be we then clothed the construct of light with t
 
 **Ra:** I am Ra. Since the concepts of space/time, or physics, and time/space, or metaphysics, are mechanical they are not central to the spiritual evolution of the mind/body/spirit complex. The study of love and light is far more productive in its motion towards unity in those entities pondering such concepts. However, this material is, shall we say, of some small interest and is harmless.
 
+71.19: **Questioner:** You stated in a previous session that Ra searched for some time to find a group such as this one. I would assume that this search was for the purpose of communicating the Law of One. Is this correct?
+
+**Ra:** I am Ra. This is partially correct. We also, as we have said, wished to attempt to make reparation for distortions of this law set in motion by our naïve actions of your past.
+
+71.20: **Questioner:** Can you tell me if we have covered the necessary material to this point to, if published, make the necessary reparations for the naïve actions?
+
+**Ra:** I am Ra. We mean no disrespect for your service, but we do not expect to make full reparations for these distortions. We may, however, offer our thoughts in the attempt. The attempt is far more important to us than the completeness of the result. The nature of your language is such that what is distorted cannot, to our knowledge, be fully undistorted but only illuminated somewhat.
+
+71.21: **Questioner:** When you say you searched for this group what do you mean? What was your process of search? I ask this question to understand more the illusion of time and space.
+
+**Ra:** I am Ra. Consider the process of one who sees the spectrograph of some complex of elements. It is a complex paint sample, let us say for ease of description. We of Ra knew the needed elements for communication which had any chance of enduring. We compared our color chip to many individuals and groups over a long span of your time. Your spectrograph matches our sample.  
+  
+In response to your desire to see the relationship betwixt space/time and time/space, may we say that we conducted this search in time/space, for in this illusion one may quite readily see entities as vibratory complexes and groups as harmonics within vibratory complexes.

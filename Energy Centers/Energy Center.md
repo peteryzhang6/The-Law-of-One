@@ -199,3 +199,26 @@ You may note that fourth-density entities have a great abundance of compassion.
 66.20: I have a written question, two of them actually. The first is would you please list the polarities within the body which are related to the balancing of the energy centers of the various bodies of the unmanifested entity?
 
 **Ra:** I am Ra. In this question there lies a great deal of thought which we appreciate. It is possible that the question itself may serve to aid meditations upon this particular subject. Each unmanifested self is unique. The basic polarities have to do with the balanced vibratory rates and relationships between the first three energy centers and, to a lesser extent, each of the other energy centers.
+
+73.21: **Questioner:** Thank you. Could you tell me of the number of possible energy transfers between two or more mind/body/spirit complexes. Is it very large, or are there few [inaudible]?
+
+**Ra:** I am Ra. The number is infinite, for is not each mind/body/spirit complex unique?
+
+73.22: **Questioner:** Could you define this statement “energy transfer between two mind/body/spirit complexes?”
+
+**Ra:** I am Ra. This will be the last full query of this working. This entity still has transferred energy available, but we find rapidly increasing distortions towards pain in the neck, the dorsal area, and the wrists and manual appendages.  
+  
+The physical energy transfer may be done numerous ways.  
+  
+We shall give two examples. Each begins with some sense of the self as Creator or in some way the magical personality being invoked. This may be consciously or unconsciously done. Firstly, that exercise of which we have spoken called the exercise of fire: this is, though physical energy transfer, not that which is deeply involved in the body complex combinations. Thusly the transfer is subtle and each transfer unique in what is offered and what is accepted. At this point we may note that this is the cause for the infinite array of possible energy transfers.  
+  
+The second energy transfer of which we would speak is the sexual energy transfer. This takes place upon a non-magical level by all those entities which vibrate green ray active. It is possible, as in the case of this instrument which dedicates itself to the service of the One Infinite Creator, to further refine this energy transfer. When the other-self also dedicates itself in service to the One Infinite Creator, the transfer is doubled. Then the amount of energy transferred is dependent only upon the amount of polarized sexual energy created and released. There are refinements from this point onward leading to the realm of the high sexual magic.  
+  
+In the realm of the mental bodies there are variations of mental energy transferred. This is, again, dependent upon the knowledge sought and the knowledge offered. The most common mental energy transfer is that of the teacher and the pupil. The amount of energy is dependent upon the quality of this offering upon the part of the teacher as regards the purity of the desire to serve and the quality of information offered and, upon the part of the student, the purity of the desire to learn and the quality of the mind vibratory complex which receives knowledge.  
+  
+Another form of mental energy transfer is that of the listener and the speaker. When the speaker is experiencing mental/emotional complex distortions towards anguish, sorrow, or other mental pain, from what we have said before, you may perhaps garner knowledge of the variations possible in this transfer.  
+  
+The spiritual energy transfers are at the heart of all energy transfers as a knowledge of self and other-self as Creator is paramount, and this is spiritual work. The varieties of spiritual energy transfer include those things of which we have spoken this day as we spoke upon the subject of the adept.  
+  
+Are there any brief queries before we leave this working?
+

@@ -1,4 +1,6 @@
 # Magick Ritual
+Also check [[Magic]]
+
 64.4: Could you explain the basic principles behind the ritual which we perform to initiate the contact and what I would call the basic white magical rituals— principles of protection and other principles? Could you please do this?
 
 **Ra:** I am Ra. Due to your avenue of question we perceive the appropriateness of inclusion of the cause of this instrument’s transitory vital energy distortion. The cause is a bias towards the yearning for expression of devotion to the One Creator in group worship.  

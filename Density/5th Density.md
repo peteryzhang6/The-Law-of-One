@@ -76,3 +76,7 @@ Thus it would not consider your service as such. On the other hand, if you allow
 
 **Ra:** I am Ra. We perceive that we have not been able to clarify your service versus its desire for service. You need, in our humble opinion, to look at the humor of the situation and relinquish your desire to serve where no service is requested. The magnet will attract or repel. Glory in the strength of your polarization and allow others of opposite polarity to similarly do so, seeing the great humor of this polarity and its complications in view of the unification in sixth density of these two paths.
 
+71.3: **Questioner:** This would probably be possible in the higher densities such as the fifth density. Is this correct?
+
+**Ra:** I am Ra. In fifth-density harvest, polarization has very little to do with harvestability.
+

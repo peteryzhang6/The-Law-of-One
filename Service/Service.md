@@ -16,3 +16,12 @@
 
 68.18: Then I am assuming if the negative polarity used any other approach that did not use the free will of the other-self, he would lose magical polarization and power. This is correct, isn’t it?
 
+71.14: **Questioner:** You have made the statement that pure negativity acts as a gravity well pulling all into it. I was wondering first if pure positivity has precisely the same effect? Could you answer that please?
+
+**Ra:** I am Ra. This is incorrect. Positivity has a much weaker effect due to the strong element of recognition of free will in any positivity approaching purity. Thus although the negatively oriented entity may find it difficult to polarize negatively in the midst of such resounding harmony it will not find it impossible.  
+  
+Upon the other hand, the negative polarization is one which does not accept the concept of the free will of other-selves. Thusly in a social complex whose negativity approaches purity the pull upon other-selves is constant. A positively oriented entity in such a situation would desire for other-selves to have their free will and thusly would find itself removed from its ability to exercise its own free will, for the free will of negatively oriented entities is bent upon conquest.
+
+72.9: **Questioner:** Everything that we experience with respect to this contact, our distortion toward knowledge in order to serve, the Orion entity’s distortion toward the attempt to reduce the effectiveness of this service, all of this is a result of the first distortion, as I see it, in creating totally free atmosphere for the Creator to become more knowledgeable of Itself through the interplay of Its portions, one with respect to another. Is my view correct with respect to what I just said?
+
+**Ra:** I am Ra. Yes.
