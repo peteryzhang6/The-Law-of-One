@@ -10,3 +10,5 @@ Each experience will be sequentially understood by the growing and seeking mind/
 Meanwhile the Creator lies within. In the north pole the crown is already upon the head and the entity is potentially a god. This energy is brought into being by the humble and trusting acceptance of this energy through meditation and contemplation of the self and of the Creator.  
   
 Where these energies meet is where the serpent will have achieved its height. When this uncoiled energy approaches universal love and radiant being the entity is in a state whereby the harvestability of the entity comes nigh.
+
+68.12: The instrument has begun the process of balancing the self. This is a lengthy process.

@@ -88,3 +88,30 @@ At this space/time we may best serve you, we believe, by stating that the pyrami
 - Thus we, as a social memory complex of fourth density, had the tendency towards compassion even to martyrdom in aid of other-selves. When the fifth-density harvest was achieved we found that in this vibratory level flaws could be seen in the efficacy of such unrelieved compassion. We spent much time/space in contemplation of those ways of the Creator which imbue love with wisdom.
 # Help Ra can offer
 7.2: As we just repeated through this instrument, we must integrate all of the portions of your social memory complex in its illusory disintegration form. Then the product of this can be seen as the limit of our ability to serve. We are fortunate that the Law of Service squares the desires of those who call. Otherwise, we would have no beingness in this time/space at this present continuum of the illusion. In short, you are basically correct. The thought of not being able is not a part of our basic thought-form complex towards your peoples but rather is a maximal consideration of what is possible.
+
+---
+
+70.18: I’ll ask this question to inform me a little bit about what you just stated. When you came to this planet in craft 18,000 and 11,000 years ago, these craft have been called, I believe, bell craft and were photographed by George Adamski. If I am correct these craft looked somewhat like a bell; they had portholes around the upper portions; and they had three hemispheres at 120° apart underneath. Is this correct?
+
+**Ra:** I am Ra. This is correct.
+
+70.19: Were these constructed in time/space or space/time?
+
+**Ra:** I am Ra. We ask your persistent patience, for our answer must be complex.  
+  
+A construct of thought was formed in time/space. This portion of time/space is that which approaches the speed of light. In time/space, at this approach, the conditions are such that time becomes infinite and mass ceases so that one which is able to skim the, shall we say, boundary strength of this time/space is able to become placed where it will.  
+  
+When we were where we wished to be we then clothed the construct of light with that which would appear as the crystal bell. This was formed through the boundary into space/time. Thus there were two constructs, the time/space or immaterial construct, and the space/time or materialized construct.
+
+70.20: **Questioner:** Now, was there a reason for the particular shape you chose, in particular a reason for the three hemispheres on the bottom?
+
+**Ra:** I am Ra. It seemed an aesthetically pleasing form and one well suited to those limited uses which we must needs make of your space/time motivating requirements.
+
+70.21: **Questioner:** Was there a principle of motivation contained within the three hemispheres on the bottom, or were they just aesthetic, or were they landing gear?
+
+**Ra:** I am Ra. These were aesthetic and part of a system of propulsion. These hemispheres were not landing gear.
+
+70.22: **Questioner:** I am sorry to ask such stupid questions, but I am trying to determine something about space/time, time/space, and you might say this very difficult area of the mechanism of evolution. I think it is central to the understanding of our evolution. However, I am not sure of this and I may be wasting my time. Could Ra comment on whether I am wasting my time in this particular [chuckles] investigation or whether it would be fruitful?
+
+**Ra:** I am Ra. Since the concepts of space/time, or physics, and time/space, or metaphysics, are mechanical they are not central to the spiritual evolution of the mind/body/spirit complex. The study of love and light is far more productive in its motion towards unity in those entities pondering such concepts. However, this material is, shall we say, of some small interest and is harmless.
+

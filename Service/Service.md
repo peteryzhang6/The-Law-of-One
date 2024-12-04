@@ -9,3 +9,10 @@
 65.8: Are you saying then that this possible condition of war would be much more greatly spread across the surface of the globe than anything we have experienced in the past and therefore touch a larger percentage of the population in this form of [[catalyst]]?
 
 **Ra:** I am Ra. This is correct. There are those now experimenting with one of the major weapons of this scenario, that is the so-called psychotronic group of devices which are being experimentally used to cause such alterations in wind and weather as will result in eventual famine. If this program is not countered and proves experimentally satisfactory, the methods in this scenario would be made public. There would then be what those whom you call [[Russia|Russians]] hope to be a bloodless invasion of their personnel in this and every land deemed valuable. However, the peoples of your culture have little propensity for bloodless surrender.
+
+68.17: I am interested in how the first distortion applies to the negatively polarized entity misplacing the mind/body/spirit complex. Why is the negatively polarized entity followed to the place of negative time/space? Why would one of us freely follow the entity?
+
+**Ra:** I am Ra. The positive polarity sees love in all things. The negative polarity is clever.
+
+68.18: Then I am assuming if the negative polarity used any other approach that did not use the free will of the other-self, he would lose magical polarization and power. This is correct, isn’t it?
+

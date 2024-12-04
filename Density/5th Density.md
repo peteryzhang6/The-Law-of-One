@@ -35,3 +35,44 @@
 To give this in your terms is misleading for there are, shall we say, visual aids or training aids available in fourth density which automatically aid the entity in polarization while cutting down extremely upon the quick effect of catalyst. Thus the density above yours must take up more space/time.  
   
 The percentage of service to others of positively oriented entities will harmoniously approach 98% in intention. The qualifications for fifth density, however, involve understanding. This then, becomes the primary qualification for graduation from fourth to fifth density. To achieve this graduation the entity must be able to understand the actions, the movements, and the dance. There is no percentage describable which measures this understanding. It is a measure of efficiency of perception. It may be measured by light. The ability to love, accept, and use a certain intensity of light thus creates the requirement for both positive and negative fourth to fifth harvesting.
+
+67.14: Do you mean then that this fifth-density entity visualizes certain symbols? I am assuming that these symbols are of a nature where their continued use would have some power or charge. Am I correct?
+
+**Ra:** I am Ra. You are correct. In fifth density light is as visible a tool as your pencil’s writing.
+
+67.15: **Questioner:** Then am I correct in assuming this entity configures the light into symbology, that is what we would call a physical presence? Is this correct?
+
+**Ra:** I am Ra. This is incorrect. The light is used to create a sufficient purity of environment for the entity to place its consciousness in a carefully created light vehicle which then uses the tools of light to do its working. The will and presence are those of the entity doing the working.
+
+67.20: Now, the main point of this line of questioning has to do with the first distortion and the fact that this window existed. Was this, shall I say, a portion of the random window effect and are we experiencing the same type of balancing in receiving the offerings of this entity as the planet in general receives because of the window effect?
+
+**Ra:** I am Ra. This is precisely correct. As the planetary sphere accepts more highly evolved positive entities or groups with information to offer, the same opportunity must be offered to similarly wise negatively oriented entities or groups.
+
+67.21: Then we experience in this seeming difficulty the what I would call effect of the wisdom of the first distortion and for that reason must fully accept the wisdom of that which we experience. This is my personal view. Is it congruent with Ra’s?
+
+**Ra:** I am Ra. In our view we would perhaps go further in expressing appreciation of this opportunity. This is an intensive opportunity in that it is quite markèd in its effects, both actual and potential, and as it affects the instrument’s distortions towards pain and other difficulties such as the dizziness, it enables the instrument to continuously choose to serve others and to serve the Creator.  
+  
+Similarly it offers a continual opportunity for each in the group to express support under more distorted or difficult circumstances of the other-self experiencing the brunt, shall we say, of this attack, thus being able to demonstrate the love and light of the Infinite Creator and, furthermore, choosing working by working to continue to serve as messengers for this information which we attempt to offer and to serve the Creator thereby.  
+  
+Thus the opportunities are quite noticeable as well as the distortions caused by this circumstance.
+
+67.22: Thank you. Is this so-called attack offered to myself and Jim as well as the instrument?
+
+**Ra:** I am Ra. This is correct.
+
+67.23: **Questioner:** I personally have felt no effect that I am aware of. Is it possible for you to tell me how we are offered this service?
+
+**Ra:** I am Ra. The questioner has been offered the service of doubting the self and of becoming disheartened over various distortions of the personal nature. This entity has not chosen to use these opportunities and the Orion entity has basically ceased to be interested in maintaining constant surveillance of this entity.  
+  
+The scribe is under constant surveillance and has been offered numerous opportunities for the intensification of the mental/emotional distortions and in some cases the connection matrices between mental/emotional complexes and the physical complex counterpart. As this entity has become aware of these attacks it has become much less pervious to them. This is the particular cause of the great intensification and constancy of the surveillance of the instrument, for it is the weak link due to factors beyond its control within this incarnation.
+
+67.26: Then there is no other service that we can at this time offer that fifth-density entity of the Orion group who is so constantly with us. As I see it now there is nothing that we can do for him from your point of view? Is this correct?
+
+**Ra:** I am Ra. This is correct. There is great humor in your attempt to be of polarized service to the opposite polarity. There is a natural difficulty in doing so since what you consider service is considered by this entity non-service. As you send this entity love and light and wish it well it loses its polarity and needs to regroup.  
+  
+Thus it would not consider your service as such. On the other hand, if you allowed it to be of service by removing this instrument from your midst you might perhaps perceive this as not being of service. You have here a balanced and polarized view of the Creator; two services offered, mutually rejected, and in a state of equilibrium in which free will is preserved and each allowed to go upon its own path of experiencing the One Infinite Creator.
+
+67.27: Thank you. In closing that part of the discussion I would just say that if there is anything that we can do that is within our ability— and I understand that there are many things such as the ones that you just mentioned that are not within our ability— that we could do for this particular entity, if you would in the future communicate its requests to us we will at least consider them because we would like to serve in every respect. Is this agreeable to you?
+
+**Ra:** I am Ra. We perceive that we have not been able to clarify your service versus its desire for service. You need, in our humble opinion, to look at the humor of the situation and relinquish your desire to serve where no service is requested. The magnet will attract or repel. Glory in the strength of your polarization and allow others of opposite polarity to similarly do so, seeing the great humor of this polarity and its complications in view of the unification in sixth density of these two paths.
+

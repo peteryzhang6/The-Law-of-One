@@ -86,3 +86,4 @@ It is incorrect to assume that other star systems are more able to manipulate th
 53.17: Then in general I could say that if an individual has a “close encounter” with a UFO or any other type of experience that seems to be UFO-related, he must look to the heart of the encounter and the effect upon him to determine whether it was Orion or Confederation contact. Is this correct?
 
 **Ra:** I am Ra. This is correct. If there is fear and doom, the contact was quite likely of a negative nature. If the result is hope, friendly feelings, and the awakening of a positive feeling of purposeful service to others, the marks of Confederation contact are evident.
+

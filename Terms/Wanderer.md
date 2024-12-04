@@ -91,3 +91,79 @@ So it is with the Wanderer which, remembering the ease with which adjustments ca
 66.8: I’m assuming, then, that we have a Wanderer with the desire attempting to learn the techniques of healing while, shall I say, trapped in third density. He then, it seems to me, is primarily concerned with the balancing and unblocking of energy centers. Am I correct in this assumption?
 
 **Ra:** I am Ra. This is correct. Only insofar as the healer has become balanced may it be a channel for the balancing of an other-self. The [[Healer-Patient|healing]] is first practiced upon the self, if we may say this in another way.
+
+68.10: Let’s say that this was done to a Wanderer of sixth density. If this answer violates the first distortion, don’t answer. But let’s say a sixth-density Wanderer had this happen, and went into negative time/space. Would that be a sixth-density negative time/space, and would he incarnate into sixth-density negative space/time?
+
+**Ra:** I am Ra. Your assumption is correct. The strength of the polarization would be matched as far as possible. In some positive sixth-density Wanderers the approximation would not quite be complete due to the paucity of negative sixth-density energy fields of the equivalent strength.
+
+69.10: Now, has a Wanderer ever been so infringed upon by, shall I say, a negative adept or whoever and then placed in negative time/space?
+
+**Ra:** I am Ra. This is correct.
+
+69.11: Can you tell me of the situation that the Wanderer finds itself in and why the path back cannot be the simple moving back into the same value of positive time/space?
+
+**Ra:** I am Ra. The path back revolves, firstly, about the higher self’s reluctance to enter negative space/time. This may be a significant part of the length of that path. Secondly, when a positively oriented entity incarnates in a thoroughly negative environment it must needs learn/teach the lessons of the love of self thus becoming one with its other-selves.  
+  
+When this has been accomplished the entity may then choose to release the potential difference and change polarities.  
+  
+However, the process of learning the accumulated lessons of love of self may be quite lengthy. Also the entity, in learning these lessons, may lose much positive orientation during the process and the choice of reversing polarities may be delayed until the mid-sixth density. All of this is, in your way of measurement, time-consuming although the end result is well.
+
+69.12: Is it possible to tell me roughly how many Wanderers that have come to this planet within this master cycle have experienced this displacement into a negative time/space? Just wondering if there have been many.
+
+**Ra:** I am Ra. We can note the number of such occurrences. There has been only one
+
+*Thoughts*: I suspect this displacement from positive to negative time/space is a metaphorical act of buddha placing itself through hell or jesus's 40 days with devil??? idk for sure. 
+
+69.13: **Questioner:** You said the higher self is reluctant to enter negative space/time. Is that correct?
+
+**Ra:** I am Ra. The incarnative process involves being incarnated from time/space to space/time. This is correct.
+
+69.14: **Questioner:** Then the positively polarized entity (I will make this statement and see if I am correct), when first moved into time/space of a negative polarization experiences nothing but darkness. Then, on incarnation into negative space/time by the higher self, it experiences a negative space/time environment with negatively polarized other-selves. Is this correct?
+
+**Ra:** I am Ra. This is correct.
+
+69.15: **Questioner:** It would seem to me that this would be an extremely difficult situation for the positively polarized entity and the learning process would be extremely traumatic. Is this correct?
+
+**Ra:** I am Ra. Let us say that the positively polarized individual makes a poor student of the love of self and thus spends much more time, if you will, than those native to that pattern of vibrations.
+
+69.16: **Questioner:** Is there no process or way by which the entity, once misplaced, and I am assuming this misplacement must be a function of his free will in some way. Is this correct?
+
+**Ra:** I am Ra. This is absolutely correct.
+
+69.17: Now, this is a point that I find quite confusing to me.  
+  
+It is a function of the free will of the positively polarized entity to move into negatively polarized time/space. However, it is also a function of his lack of understanding of what he is doing. I am sure if the entity had full understanding of what he was doing that he would not do it. It is a function of his negatively polarized other-self creating a situation by which he is, shall I say, lured to that configuration. What is the principle with respect to the first distortion that allows this to occur since we have two portions of the Creator, each of equal value or equal potential, shall I say, but oppositely polarized and we have this situation resulting. Could you tell me the philosophical principle behind this particular act?
+
+**Ra:** I am Ra. There are two important points in this regard. Firstly, we may note the situation wherein an entity gets a road map which is poorly marked and in fact is quite incorrect. The entity sets out to its destination. It wishes only to reach the point of destination but, becoming confused by the faulty authority and not knowing the territory through which it drives, it becomes hopelessly lost.  
+  
+Free will does not mean that there will be no circumstances when calculations will be awry. This is so in all aspects of the life experience. Although there are no mistakes, there are surprises.  
+  
+Secondly, that which we and you do in workings such as this carries a magical charge, if you would use this much misunderstood term. Perhaps we may say a metaphysical power. Those who do work of power are available for communication to and from entities of roughly similar power. It is fortunate that the Orion entity does not have the native power of this group. However, it is quite disciplined whereas this group lacks the finesse equivalent to its power. Each is working in consciousness but the group has not begun a work as a group. The individual work is helpful, for the group is mutually an aid, one to another.
+
+70.6: **Questioner:** In the last session Ra stated that “the path back from sixth-density negative time/space revolves, firstly, about the higher self’s reluctance to enter negative time/space.” Could you explain the higher self’s position with respect to positive and negative time/space and why it is so reluctant to enter negative time/space that it is necessary for the mind/body/spirit complex to incarnate in negative space/time to find its path back?
+
+**Ra:** I am Ra. In brief, you have answered your own query
+
+70.7: **Questioner:** Why is the higher self reluctant to enter negative time/space?
+
+**Ra:** I am Ra. The Higher Self is reluctant to allow its mind/body/spirit complex to enter negative time/space for the same basic reason an entity of your societal complex would be reluctant to enter a prison.
+
+70.8: What I am trying to understand here is more about the higher self and its relationship with the mind/body/spirit complex. Does the higher self have a sixth-density mind/body/spirit complex that is a separate unit from the mind/body/spirit complex that is, in this case, displaced to negative time/space?
+
+**Ra:** I am Ra. This is correct. The higher self is the entity of mid-[[6th Density|sixth density]] which, turning back, offers this service to its self.
+
+70.14: **Questioner:** Oh yes. Sorry about that. It slipped my mind. Now, if a positive entity is displaced to negative time/space I understand that the higher self is reluctant to enter the negative time/space. And for some reason this makes it necessary for the mind/body/spirit complex to incarnate in negative space/time. Why is it necessary for this incarnation in negative space/time?
+
+**Ra:** I am Ra. Firstly, let us remove the concept of reluctance from the equation and then secondly, address your query more to the point. Each time/space is an analog of a particular sort or vibration of space/time. When a negative time/space is entered by an entity the next experience will be that of the appropriate space/time. This is normally done by the form-making body of a mind/body/spirit complex which places the entity in the proper time/space for incarnation.
+
+70.15: I think to try and clear up this point I’m going to ask a few questions that are related that will possibly enable me to understand this better because I am really confused about this and I think it is a very important point in understanding the creation and the Creator in general, you might say. If a Wanderer of fourth, fifth, or sixth density dies from this third-density state in which we presently find ourselves, does he then find himself in third-density time/space after death?
+
+**Ra:** I am Ra. This will depend upon the plan which has been approved by the Council of Nine. Some Wanderers offer themselves for but one incarnation while others offer themselves for varying lengths of your time up to and including the last two cycles of 25,000 years. If the agreed-upon mission is complete the Wanderer’s mind/body/spirit complex will go to the home vibration.
+
+70.23: **Questioner:** I was asking these questions primarily to understand or to build a base for an attempt to get a little bit of enlightenment on the way that time/space and space/time is related to the evolution of the mind/body/spirit complex so that I could better understand the techniques, you might say, of that evolution. For instance, you stated that “the potential difference may be released and polarities changed after an entity has learned/taught the lessons of love of self” if the entity is [a] positive entity that has found itself in negative time/space and then had to incarnate in negative space/time. And what I was trying to do was build a base for attempting to understand or at least get a slight understanding of what you meant by this statement that potential difference may be released and polarities changed after the above step. I am very interested in knowing, if placed in a negative time/space, why it is necessary to incarnate in negative space/time and learn/teach love of self and develop, I guess, a sixth-density level of polarity before you can release that potential difference. I was trying to build a little foothold or platform from which to make that more apparent. Could you speak on that subject, please?
+
+**Ra:** I am Ra. This will be the last full query of this working.  
+  
+The entity which incarnates into negative space/time will not find it possible to maintain any significant positive polarity as negativity, when pure, is a type of gravity well, shall we say, pulling all into it. Thus the entity, while remembering its learned and preferred polarity, must needs make use of the catalyst given and recapitulate the lessons of service to self in order to build up enough polarity in order to cause the potential to occur for reversal.  
+  
+There is much in this line of questioning which is somewhat muddled. May we, at this point allow the questioner to rephrase the question or to turn the direction of query more towards that which is the heart of its concern.

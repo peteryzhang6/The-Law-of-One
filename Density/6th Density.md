@@ -50,3 +50,28 @@ That of Law of One
 at the end of 6D STS, one of the must learned lesson, I think, is that of forgiveness/reconcilation. To recall and understand the heartless action of oneself did to other selves and to feel the pain of others as self; to deal and resolve the pain of others as self; to feel the pain caused by the heartless actions of other to self; to deal and resolve the pain that felt by others of knowing their heartless actions through self; and so on and on.
 
 6.7: You will remember the exercise of the wind. The dissolution into nothingness is the dissolution into unity, for there is no nothingness. From the sixth dimension, we are capable of manipulating, by thought, the intelligent infinity present in each particle of light or distorted light so that we were able to clothe ourselves in a replica visible in the third density of our mind/body/spirit complexes in the sixth density. We were allowed this experiment by the [[Council]] which guards this planet.
+
+---
+
+70.9: **Questioner:** I think I have an erroneous concept of the mind/body/spirit complex, for instance, that I represent here in this density and my higher self. The concept probably comes from my concept of space and time. I am going to try to unscramble it. The way I see it right now is that I am existing in two different locations, here and in mid-sixth density, simultaneously. Is this correct?
+
+**Ra:** I am Ra. You are existing at all levels simultaneously. It is specifically correct that your higher self is you in mid-sixth density and, in your way of measuring what you know of as time, your higher self is your self in your future.
+
+70.10: Am I correct in assuming that all of the mind/body/spirit complexes that exist in the levels below mid-sixth density have a higher self in mid-sixth density? Is this correct?
+
+**Ra:** I am Ra. This is correct.
+
+70.11: **Questioner:** Would an analogy for this situation be that the individual’s higher self is manipulating to some extent, shall I say, the mind/body/spirit complex that is its analog, you might say, to move it through the lower densities for purposes of gaining experience and then finally transferring that experience or amalgamating it, you might say, in mid-sixth density with the higher self?
+
+**Ra:** I am Ra. This is incorrect. The Higher Self does not manipulate its past selves. It protects when possible and guides when asked, but the force of free will is paramount. The seeming contradictions of determinism and free will melt when it is accepted that there is such a thing as true simultaneity. The Higher Self is the end result of all the development experienced by the mind/body/spirit complex to that point.
+
+70.12: **Questioner:** Then what we are looking at is a long path of experience through the densities up to mid-sixth density which are a function totally of free will and result in the awareness of the higher self in mid-sixth density, but since time is illusory and there is a, shall I say, unification of time and space or an eradication of what we think of as time, then, all of this experience that results in the higher self, the cause of evolvement through the densities, is existing while the evolvement takes place, since it’s all simultaneous. Is this correct?
+
+**Ra:** I am Ra. We refrain from speaking of correctness due to our understanding of the immense difficulty of absorbing the concepts of metaphysical existence. In time/space, which is precisely as much of your self as is space/time, all times are simultaneous just as, in your geography, your cities and villages are all functioning, bustling, and alive with entities going about their business at once. So it is in time/space with the self.
+
+70.17: **Questioner:** Now here is the point of my confusion. If, after physical death, a Wanderer would return to his home planet, shall I say, why cannot the same entity be extracted from negative time/space to the home planet rather than incarnating in negative space/time?
+
+**Ra:** I am Ra. As we stated, the position in negative time/space, of which we previously were speaking, is that position which is pre-incarnative. After the death of the physical complex in yellow-ray activation the mind/body/spirit complex moves to a far different portion of time/space in which the indigo body will allow much healing and review to take place before any movement is made towards another incarnative experience.  
+  
+I perceive a basic miscalculation upon your part in that time/space is no more homogenous than space/time. It is as complex and complete a system of illusions, dances, and pattern as is space/time and has as structured a system of what you may call natural laws.
+
