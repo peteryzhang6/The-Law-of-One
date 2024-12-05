@@ -82,3 +82,32 @@ It may be seen that the King’s Chamber effect is not attempted in this form of
 73.20: **Questioner:** It seems to me that the primary thing of importance for those on the service-to-others path is the development of an attitude which I can only describe as vibration. This attitude would be developed through meditation, ritual, and a developing appreciation for the creation or Creator which results in a state of mind that can only by me be expressed as an increase in vibration or oneness with all. Could you expand and correct that statement?
 
 **Ra:** I am Ra. We shall not correct this statement but shall expand upon it by suggesting that to those qualities you may add the living day by day and moment by moment, for the true adept lives more and more as it is.
+
+75.23: **Questioner:** I am sorry for the confusion. Sometimes, as you say, sound vibration complexes are not very adequate, and I’m sorry.  
+  
+You made the statement in a previous session that the true adept lives more and more as it is. Will you explain and expand upon that statement?
+
+**Ra:** I am Ra. Each entity is the Creator. The entity, as it becomes more and more conscious of its self, gradually comes to the turning point at which it determines to seek either in service to others or in service to self. The seeker becomes the adept when it has balanced with minimal adequacy the energy centers red, orange, yellow, and blue with the addition of the green for the positive, thus moving into indigo work.  
+  
+The adept then begins to do less of the preliminary or outer work, having to do with function, and begins to effect the inner work which has to do with being. As the adept becomes a more and more consciously crystallized entity it gradually manifests more and more of that which it always has been since before time; that is, the One Infinite Creator.
+
+- check [[Chant]]
+
+75.29: **Questioner:** Then would the adept use this resonant quality to become more one with the creation and, therefore, attain his objective in that way?
+
+**Ra:** I am Ra. It would, perhaps, be more accurate to state that in this circumstance the creation becomes more and more contained within the practitioner. The balance of your query is correct.
+
+75.31: **Questioner:** I didn’t think that you could, but I thought it wouldn’t hurt to ask.  
+  
+Then I assume that these must be sought out and determined by empirical observation of their effect by the seeker. Is this correct?
+
+**Ra:** I am Ra. This is partially correct. As your seeking continues there will be added to empirical data that acuity of sensibility which continued working in the ways of the adept offers.
+
+76.9: **Questioner:** Is there, in Ra’s opinion, any present-day value for the reuse of the tarot as an aid in the evolutionary process?
+
+**Ra:** I am Ra. We shall repeat information. It is appropriate to study one form of constructed and organized distortion of the archetypical mind in depth in order to arrive at the position of being able to become and to experience archetypes at will. You have three basic choices. You may choose astrology, the twelve signs, as you call these portions of your planet’s energy web, and what has been called the ten planets. You may choose the tarot with its twenty-two so-called Major Arcana. You may choose the study of the so-called Tree of Life with its ten Sephiroth and the twenty-two relationships between the stations.  
+  
+It is well to investigate each discipline, not as a dilettante, but as one who seeks the touchstone, one who wishes to feel the pull of the magnet. One of these studies will be more attractive to the seeker. Let the seeker then investigate the archetypical mind using, basically, one of these three disciplines. After a period of study, the discipline mastered sufficiently, the seeker may then complete the more important step: that is, the moving beyond the written in order to express in an unique fashion its understanding, if you may again pardon the noun, of the archetypical mind.
+
+
+

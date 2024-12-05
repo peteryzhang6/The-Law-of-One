@@ -102,3 +102,13 @@ This is the great virtue of the magical working whereby consciousness is sent fo
   
 The magical principles, shall we say, may be loosely translated into your system of magic whereby symbols are used and traced and visualized in order to develop the power of the light.
 
+74.12: **Questioner:** You stated that a working of service to others has the potential of alerting a great mass of light strength. Could you describe just exactly how this works and what the uses of this would be?
+
+**Ra:** I am Ra. There are sound vibratory complexes which act much like the dialing of your telephone. When they are appropriately vibrated with accompanying will and concentration it is as though many upon your metaphysical or inner planes received a telephone call. This call they answer by their attention to your working.
+
+74.16: **Questioner:** I will make an analogy to the loudness of ringing of the telephone in using the ritual as the efficiency of the practitioners using the ritual. Now, I see several things affecting the efficiency of the ritual: first, the desire of the practitioners to serve, their ability to invoke the magical personality, their ability to visualize while performing the ritual, and let me ask you as to the relative importance of those items and how each may be intensified?
+
+**Ra:** I am Ra. This query borders upon over-specificity. It is most important for the adept to feel its own growth as teach/learner.  
+  
+We may only say that you correctly surmise the paramount import of the magical personality. This is a study in itself. With the appropriate emotional will, polarity, and purity, work may be done with or without proper sound vibration complexes. However, there is no need for the blunt instrument when the scalpel is available.
+

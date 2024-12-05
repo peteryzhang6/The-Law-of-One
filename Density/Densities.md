@@ -1,6 +1,17 @@
 # Densities
 
 # 1st Density
+76.13: **Questioner:** I’m going to ask some questions now that may be a little off center of what we are trying to do. I’m not sure because I’m trying to, with these questions, unscramble something that I consider to be very basic to what we are doing. Please forgive my lack of ability in questioning since this is a difficult concept for me.  
+  
+Could you give me an idea of the length of the first and second density that occurred for this planet?
+
+**Ra:** I am Ra. There is no method of estimation of the time/space before timelessness gave way, in your first density, to the beginnings of your time. The measurement would be vast, and yet this vastness is meaningless. Upon the entry into the constructed space/time, your first density spanned a bridge of space/time and time/space of perhaps two billion of your years.  
+  
+Second density is more easily estimated and represents your longest density in terms of the span of space/time. We may estimate that time as approximately 4.6 billion years.  
+  
+These approximations are exceedingly rough due to the somewhat uneven development which is characteristic of creations which are built upon the foundation stone of free will.
+
+
 # 2nd Density
 ## Entities
 9.14: The second density is the density of the higher plant life and animal life which exists without the upward drive towards the infinite. These second-density beings are of an octave of consciousness just as you find various orientations of consciousness among the conscious entities of your vibration.

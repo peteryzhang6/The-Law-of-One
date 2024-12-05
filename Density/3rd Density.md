@@ -46,8 +46,33 @@
 
 76.15 The 3rd density is a choice 
 
-76.16 The prelude to choice must encompass the laying of the foundation, the establishment of the illusion and the viability of that which can be made spiritually viable. The remainder of the densities is continuous refining of the choice. This also is greatly lengthened, as you would use the term. The choice is, as you put it, the work of a moment but is the axis upon which the creation turns.
+76.16 **Questioner:** Third density, then, it appears, is, compared to the rest of the densities, all of them, nothing but a uniquely short period of what we consider to be time and is then for the purpose of this choice.  
+  
+Is this correct?
+
+**Ra:** I am Ra. The prelude to choice must encompass the laying of the foundation, the establishment of the illusion and the viability of that which can be made spiritually viable. The remainder of the densities is continuous refining of the choice. This also is greatly lengthened, as you would use the term. The choice is, as you put it, the work of a moment but is the axis upon which the creation turns.
 - check [[Polarization]]
+
+76.17: **Questioner:** Is this third-density choice the same throughout all of the creation of which you are aware?
+
+**Ra:** I am Ra. We are aware of creations in which third density is lengthier and more space/time is given to the choosing. However, the proportions remain the same, the dimensions all being somewhat etiolated and weakened by the Logos to have a variant experience of the Creator. This creation is seen by us to be quite vivid.
+
+76.18: **Questioner:** I didn’t understand what you meant by “seen to you as being quite vivid.” What do you mean?
+
+**Ra:** I am Ra. This creation is somewhat more condensed by its Logos than some other Logoi have chosen. Thus each experience of the Creator by the Creator in this system of distortions is, relatively speaking, more bright or, as we said, vivid.
+
+76.20: **Questioner:** What was the form of disease, and why did this exist at beginning third density?
+
+**Ra:** I am Ra. Firstly, that which you speak of as disease is a functional portion of the body complex which offers the body complex the opportunity to cease viability. This is a desirable body complex function. The second portion of the answer has to do with second-density other-selves of a microscopic, as you would call it, size which have in some forms long existed and perform their service by aiding the physical body complex in its function of ceasing viability at the appropriate space/time.
+
+76.21: **Questioner:** What I am trying to understand is the difference between the plan of the Logos for these second-density entities and the generation of what I would guess to be a more or less runaway array of feedback to create various physical problems that act as catalyst in our present third-density condition. Could you give me an indication of that; of whether my thinking is anywhere near right on that?
+
+**Ra:** I am Ra. This instrument’s physical body complex is becoming more distorted towards pain. We shall, therefore, speak to this subject as our last full query of this working.  
+  
+Your query contains some internal confusion which causes the answer to be perhaps more general than desired. We invite refinements of the query.  
+  
+The Logos planned for entities of mind/body/spirit complex to gain experience until the amount of experience was sufficient for an incarnation. This varied only slightly from second-density entities whose mind/body complexes existed for the purpose of experiencing growth and seeking consciousness. As the third density upon your planet proceeded, as has been discussed, the need for the physical body complex to cease became more rapidly approached due to intensified and more rapidly gained catalyst. This catalyst was not being properly assimilated. Therefore, the, shall we say, lifetimes needed to be shorter that learning might continue to occur with the proper rhythm and increment. Thus more and more opportunities have been offered, as your density has progressed, for disease. May we ask if there are further brief queries before we close?
+
 
 82.17 The nature of third density is constant. Its ways are to be learned the same now and ever. Thusly, no matter what form the entity facing these lessons, the lessons and mechanisms are the same. The Creator will learn from Itself. Each entity has unmanifest portions of learning and, most importantly, learning which is involved with other-selves.
 

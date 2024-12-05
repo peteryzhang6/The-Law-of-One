@@ -78,3 +78,32 @@ Jesus answered, “I am the way and the truth and the life. No one comes to the 
 
 **Ra:** I am Ra. What is the purpose of teach/learning if there be no learn/teachers? Those drawn to this entity were accepted by this entity without regard for any outcome. This entity accepted the honor/duty placed upon it by its nature and its sense that to speak was its mission.
 
+75.14: **Questioner:** The instrument would like to know why twice at the “Benedictus” portion of the music that she practices did she experience what she believes to be a psychic attack?
+
+**Ra:** I am Ra. This is not a minor query. We shall first remove the notations which are minor. In the vibrating, which you call singing, of the portion of what this instrument hallows as the Mass which immediately precedes that which is the chink called the “Hosanna” there is an amount of physical exertion required that is exhausting to any entity. This portion of which we speak is termed the “Sanctus.” We come now to the matter of interest.  
+  
+When the entity Jehoshua decided to return to the location called Jerusalem for the holy days of its people it turned from work mixing love and wisdom and embraced martyrdom which is the work of love without wisdom.  
+  
+The “Hosanna,” as it is termed, and the following “Benedictus,” is that which is the written summation of what was shouted as Jehoshua came into the place of its martyrdom. The general acceptance of this shout, “Hosanna to the son of David! Hosanna in the highest! Blessed is he who comes in the name of the Lord!” by that which is called the church has been a misstatement of occurrence which has been, perhaps, unfortunate for it is more distorted than much of the so-called Mass.  
+  
+There were two factions present to greet Jehoshua, firstly, a small group of those which hoped for an earthly king. However, Jehoshua rode upon an ass stating by its very demeanor that it was no earthly king and wished no fight with Roman or Sadducee.  
+  
+The greater number were those which had been instructed by rabbi and elder to make jest of this entity, for those of the hierarchy feared this entity who seemed to be one of them, giving respect to their laws and then, in their eyes, betraying those time-honored laws and taking the people with it.  
+  
+The chink for this instrument is this subtle situation which echoes down through your space/time and, more than this, the place the “Hosanna” holds as the harbinger of that turning to martyrdom. We may speak only generally here. The instrument did not experience the full force of the greeting which it correctly identified during the “Hosanna” due to the intense concentration necessary to vibrate its portion of that composition. However, the “Benedictus” in this particular rendition of these words is vibrated by one entity. Thus the instrument relaxed its concentration and was immediately open to the fuller greeting.
+
+75.15: **Questioner:** The chink then, as I understand it, was originally created by the decision of Jesus to take the path of martyrdom? Is this correct?
+
+**Ra:** I am Ra. This is, in relation to this instrument, quite correct. It is aware of certain over-balances towards love, even to martyrdom but has not yet, to any significant degree, balanced these distortions. We do not imply that this course of unbridled compassion has any fault but affirm its perfection. It is an example of love which has served as beacon to many.  
+  
+For those who seek further, the consequences of martyrdom must be considered, for in martyrdom lies the end of the opportunity, in the density of the martyr, to offer love and light. Each entity must seek its deepest path.
+
+75.16: **Questioner:** Let me see if I understand, then, how the Orion group finds a chink in this distortion. The entity identifying, or having a distortion of any amount toward martyrdom is then open by its free will to the aid of the Orion group to make it a martyr. Am I correct?
+
+**Ra:** I am Ra. You are correct only in the quite specialized position in which the instrument finds itself, that is, of being involved in and dedicated to work which is magical or extremely polarized in nature. This group entered this work with polarity but virtual innocence as to the magical nature of this polarity it is beginning to discover.
+
+75.17: **Questioner:** How was the Orion entity able to act through this linkage of the “Hosanna?” Was this simply because of the mental distortion of the instrument at this period of time, because of that suggested by the music, or was it a more physical or more metaphysical link from the time of Christ?
+
+**Ra:** I am Ra. Firstly, the latter supposition is false. This entity is not linked with the entity, Jehoshua. Secondly, there is a most unique circumstance. There is an entity which has attracted the attention of an Orion light being. This is extremely rare.  
+  
+This entity has an intense devotion to the teachings and example of the one it calls Jesus. This entity then vibrates in song a most demanding version, called _The Mass in B Minor_ by Bach, of this exemplary votive complex of sound vibrations. The entity is consciously identifying with each part of this Mass. Only thusly was the chink made available. As you can see, it is not an ordinary occurrence and would not have happened had any ingredient been left out: exhaustion, bias in belief complexes, attention from an Orion entity, and the metaphysical nature of that particular set of words.
