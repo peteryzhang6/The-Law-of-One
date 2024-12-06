@@ -128,3 +128,25 @@ When we were where we wished to be we then clothed the construct of light with t
 **Ra:** I am Ra. Consider the process of one who sees the spectrograph of some complex of elements. It is a complex paint sample, let us say for ease of description. We of Ra knew the needed elements for communication which had any chance of enduring. We compared our color chip to many individuals and groups over a long span of your time. Your spectrograph matches our sample.  
   
 In response to your desire to see the relationship betwixt space/time and time/space, may we say that we conducted this search in time/space, for in this illusion one may quite readily see entities as vibratory complexes and groups as harmonics within vibratory complexes.
+
+81.16: **Questioner:** Ra states that it has knowledge of only this octave, but it seems that Ra has complete knowledge of this octave.  
+  
+Can you tell me why this is?
+
+**Ra:** I am Ra. Firstly, we do not have complete knowledge of this octave. There are portions of the seventh density which, although described to us by our teachers, remain mysterious. Secondly, we have experienced a great deal of the available refining catalyst of this octave, and our teachers have worked with us most carefully that we may be one with all, that in turn our eventual returning to the great allness of creation shall be complete.
+
+81.18: **Questioner:** Why does Ra not have any knowledge of that which was prior to the beginning of this octave?
+
+**Ra:** I am Ra. Let us compare octaves to islands. It may be that the inhabitants of an island are not alone upon a planetary sphere, but if an ocean-going vehicle in which one may survive has not been invented, true knowledge of other islands is possible only if an entity comes among the islanders and says, “I am from elsewhere.” This is a rough analogy. However, we have evidence of this sort, both of previous creation and creation to be, as we in the stream of space/time and time/space view these apparently non-simultaneous events.
+
+81.23: **Questioner:** Just… it’s unimportant, but just roughly how many other of these galaxies has Ra, shall we say, traveled to?
+
+**Ra:** I am Ra. We have opened our hearts in radiation of love to the entire creation. Approximately 90 percent of the creation is at some level aware of the sending and able to reply. All of the infinite Logoi are one in the consciousness of love. This is the type of contact which we enjoy rather than travel.
+
+81.24: **Questioner:** So that I can just get a little idea of what I am talking about, what are the limits of Ra’s travel in the sense of directly experiencing or seeing the activities of various places? Is it solely within this galaxy, and if so, how much of this galaxy? Or does it include some other galaxies?
+
+**Ra:** I am Ra. Although it would be possible for us to move at will throughout the creation within this Logos, that is to say, the Milky Way Galaxy, so-called, we have moved where we were called to service; these locations being, shall we say, local and including Alpha Centauri, planets of your solar system which you call the Sun, Cepheus, and Zeta Reticuli. To these sub-Logoi we have come, having been called.
+
+81.25: **Questioner:** Was the call in each instance from the third-density beings or was this call from additional or other densities?
+
+**Ra:** I am Ra. In general, the latter supposition is correct. In the particular case of the Sun sub-Logos, third density is the density of calling.

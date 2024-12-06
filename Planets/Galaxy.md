@@ -96,3 +96,37 @@ The first [[Logos]] to instill what you now see as free will, in the full sense,
 
 **Ra:** I am Ra. We would only comment briefly. It is generally correct. You may fruitfully view each Logos and its design as the Creator experiencing Itself. The seed concept of the significator being a complex introduces two things: firstly, the Creator against Creator in one sub-Logos in what you may call dynamic tension; secondly, the concept of free will, once having been made fuller by its extension into the sub-Logoi known as mind/body/spirit complexes, creates and re-creates and continues to create as a function of its very nature.
 
+81.19: **Questioner:** Well, we presently find ourselves in the Milky Way Galaxy of some 200 or so million— correction, 200 or so billion— stars and there are millions and millions of these large galaxies spread out through what we call space. To Ra’s knowledge, I assume, the number of these galaxies is infinite? Is this correct?
+
+**Ra:** I am Ra. This is precisely correct and is a significant point.
+
+81.20: **Questioner:** The point being that we have unity. Is that correct?
+
+**Ra:** I am Ra. You are perceptive.
+
+81.28: **Questioner:** Thank you. In this line of questioning I am trying to establish a basis for understanding the foundation for not only the experience that we have now but how the experience was formed and, and how it is related to all the rest of the experience through the portion of the octave as we understand it. I am assuming, then, that all of these galaxies, millions… infinite number of galaxies which we can just begin to become aware of with our telescopes, they are all of the same octave. Is this correct?
+
+**Ra:** I am Ra. This is correct.
+
+81.29: **Questioner:** I was wondering if, in that some of the Wanderers from Ra going to the other major galaxies, that is, leaving this system of 200 plus billion stars of lenticular shape and going to another cluster of billions of stars and finding their way to some planetary situation there, would any of these Wanderers encounter the dual polarity that we have here, the both the service-to-self and the service-to-others polarity?
+
+**Ra:** I am Ra. This is correct.
+
+81.30: **Questioner:** Now, you stated earlier that toward the center of this galaxy, I believe, i[n] what, to use a poor term, you could call the older portion you would find no service-to-self polarization, but, that this was a, what you might call, a later experience. Am I correct in assuming that this is true of the other galaxies with which Wanderers from Ra have experience? That at the center of these galaxies only the service-to-others polarity existed and the experiment started farther out toward the rim of the galaxy?
+
+**Ra:** I am Ra. Various Logoi and sub-Logoi had various methods of arriving at the discovery of the efficiency of free will in intensifying the experience of the Creator by the Creator. However, in each case this has been a pattern.
+
+81.31: **Questioner:** You mean then that the pattern is that the service-to-self polarization appeared farther out from the center of the galactic spiral?
+
+**Ra:** I am Ra. This is correct.
+
+81.32: **Questioner:** From this I will assume that at the beginning of the octave we had the core, with many galactic spirals forming, and I know this is incorrect in the sense of timelessness, but as the spiral formed then I am assuming that in this particular octave the experiment then must have started somewhat, roughly, simultaneously in many, many of the budding or building galactic systems by the experiment of the veiling in extending the free will. Am I in any way correct with this assumption?
+
+**Ra:** I am Ra. You are precisely correct.  
+  
+This instrument is unusually fragile at this space/time and has used much of the transferred energy. We would invite one more full query for this working.
+
+81.33: **Questioner:** Actually, [I] don’t have much more on this except to make the assumption that there must have been some type of communication throughout the octave so that, when the first experiment became effective, the knowledge of this then spread rapidly through the octave and was picked up by other budding galactic spirals, you might say. Is this correct?
+
+**Ra:** I am Ra. This is correct. To be aware of the nature of this communication is to be aware of the nature of the Logos. Much of what you call creation has never separated from the one Logos of this octave and resides within the One Infinite Creator. Communication in such an environment is the communication of cells of the body. That which is learned by one is known to all. The sub-Logoi, then, have been in the position of refining the discoveries of what might be called the earlier sub-Logoi. May we ask if we may answer any brief queries at this working?
+

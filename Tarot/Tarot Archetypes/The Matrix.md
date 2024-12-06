@@ -6,6 +6,10 @@
 | Law of One | ![[tarot1.jpg]]     | ![[tarot8.jpg]]     | ![[tarot15.jpg]]  |
 Please check [[1st Density]], [[Red Ray]]
 
+- [[The Matrix of the Mind]]
+- [[The Matrix of the Body]]
+- [[The Matrix of the Spirit]]
+
 Beingness
 
 78.11: **Questioner:** Could you elaborate please on the nature and quality of the matrix and the potentiator?

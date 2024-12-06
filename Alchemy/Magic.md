@@ -113,3 +113,21 @@ It is well to investigate each discipline, not as a dilettante, but as one who s
 
 **Ra:** I am Ra. The practice of magical workings demands the most rigorous honesty. If your estimate of your ability is that you can sustain the magical personality throughout this working, it is well. As long as you have some doubt it is inadvisable. In any case it is appropriate for this instrument to return its magical personality rather than carry this persona into the trance state, for it does not have the requisite magical skill to function in this circumstance and would be far more vulnerable than if the waking personality is offered as channel. This working is indeed magical in nature in the basic sense. However, it is inappropriate to move more quickly than one’s feet may walk.
 
+80.11: **Questioner:** Could I say, then, that implicit in the process of becoming adept is the possible partial polarization towards service to self because simply the adept becomes disassociated with many of his kind or like in the particular density which he inhabits?
+
+**Ra:** I am Ra. This is likely to occur. The apparent happening is disassociation whether the truth is service to self and thus true disassociation from other-selves or service to others and thus true association with the heart of all other-selves and disassociation only from the illusory husks which prevent the adept from correctly perceiving the self and other-self as one.
+
+80.12: **Questioner:** Then you say that this effect of disassociation on the service-to-others adept is a stumbling block or slowing process in reaching that goal which he aspires to? Is this correct?
+
+**Ra:** I am Ra. This is incorrect. This disassociation from the miasma of illusion and misrepresentation of each and every distortion is a quite necessary portion of an adept’s path. It may be seen by others to be unfortunate.
+
+80.14: **Questioner:** [I] didn’t intend to get too far ahead of my questioning process here. The either positively or negatively polarized adept, then, is building a potential to draw directly on the spirit for power. Is this correct?
+
+**Ra:** I am Ra. It would be more proper to say that the adept is calling directly through the spirit to the universe for its power, for the spirit is a shuttle.
+
+80.15: **Questioner:** Now, the obvious only significant difference, I believe, between the positive and negative adept in using this shuttle is the way they had polarized. Is there a relationship between the archetypes of the spirit and whether the polarization is either positive or negative? Is, for instance, the positive calling through the sixteenth and the [chuckling] negative calling through the fifteenth archetype? I am very confused on these points and I imagine that question is poor or meaningless. Can you answer that?
+
+**Ra:** I am Ra. It is a challenge to answer such a query, for there is some confusion in its construction. However, we shall attempt to speak upon the subject.  
+  
+The adept, whether positive or negative, has the same Matrix. The Potentiator is also identical. Due to the Catalyst of each adept the adept may begin to pick and choose that into which it shall look further. The Experience of the Spirit, that which you have called the Moon, is then, by far, the more manifest of influences upon the polarity of the adept. Even the most unhappy of experiences, shall we say, which seem to occur in the Catalyst of the adept, seen from the viewpoint of the spirit, may, with the discrimination possible in shadow, be worked with until light equaling the light of brightest noon descends upon the adept and positive or service-to-others illumination has occurred. The service-to-self adept will satisfy itself with the shadows and, grasping the light of day, will toss back the head in grim laughter, preferring the darkness.
+
