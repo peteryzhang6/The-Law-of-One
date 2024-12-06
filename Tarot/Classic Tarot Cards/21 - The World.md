@@ -6,7 +6,7 @@ aliases:
 tags:
   - Tarot
 ---
-<- [20 - Judgement](20%20-%20Judgement.md) | [0 - Fool](0%20-%20Fool.md) ->
+<- [20 - Judgement](20%20-%20Judgement.md) | [0 - The Fool](0%20-%20The%20Fool.md) ->
 # 21 - The World
 ![600](Classic%20Tarot%20Images/21-world.jpg)
 # 21 - The Great Way of the Spirit

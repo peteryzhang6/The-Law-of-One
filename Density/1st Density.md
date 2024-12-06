@@ -22,3 +22,11 @@
 78.29
 - Could you tell me how, in first density, wind and fire teach earth and water?
 - Ra: I am Ra. You may see the air and fire of that which is chaos as literally illuminating and forming the formless, for earth and water were, in the timeless state, unformed. As the active principles of fire and air blow and burn incandescently about that which nurtures that which is to come, the water learns to become sea, lake, and river offering the opportunity for viable life. The earth learns to be shaped, thus offering the opportunity for viable life.
+
+---
+
+78.29: **Questioner:** I understand your limitations in answering that. Thank you.  
+  
+Could you tell me how, in first density, wind and fire teach earth and water?
+
+**Ra:** I am Ra. You may see the air and fire of that which is chaos as literally illuminating and forming the formless, for earth and water were, in the timeless state, unformed. As the active principles of fire and air blow and burn incandescently about that which nurtures that which is to come, the water learns to become sea, lake, and river offering the opportunity for viable life. The earth learns to be shaped, thus offering the opportunity for viable life.

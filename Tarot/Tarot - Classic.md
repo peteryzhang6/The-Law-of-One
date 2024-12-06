@@ -8,7 +8,7 @@ The modern Tarot consist of 22 Major Arcana and 56 Minor Arcana. Minor Arcana is
 
 The image for 8 and 11 is swapped when compared the Tarot in Law of One.
 ## Tarot Cards
-- [0 - Fool](0%20-%20Fool.md)
+- [0 - The Fool](0%20-%20The%20Fool.md)
 - [1 - The Magician](1%20-%20The%20Magician.md)
 - [2 - The High Priestess](2%20-%20The%20High%20Priestess.md)
 - [3 - The Empress](3%20-%20The%20Empress.md)

@@ -47,3 +47,52 @@
 71.13: **Questioner:** Then each entity is on a path that leads to the [[One Original Thought|one destination]]. This is like many, many roads which travel through many, many places but eventually merge into one large center. Is this correct?
 
 **Ra:** I am Ra. This is correct but somewhat wanting in depth of description. More applicable would be the thought that each entity contains within it all of the densities and sub-densities of the octave so that in each entity, no matter whither its choices lead it, its great internal blueprint is one with all others. Thusly its experiences will fall into the patterns of the journey back to the original Logos. This is done through free will but the materials from which choices can be made are one blueprint.
+
+78.8: **Questioner:** OK. Thank you. I am going to go back to an earlier time, if you could call it that, in the evolution to try to establish a very fundamental base for some of the concepts that seem to be the foundation of everything that we experience here so that we can more fully examine the basis of our evolution.  
+  
+I am guessing that in our Milky Way Galaxy (that is, the major galaxy with billions of stars that we find ourselves in) that the progress of evolution was from the center outward toward the rim and that in the early evolution of this galaxy the first distortion was not extended down past the sub-Logos simply because it was not thought of or not conceived and that this extension of the first distortion, which created the polarization that we experience, was something that occurred at what we would call a later time, or as the evolution progressed outward from the center of the galaxy. Am I in any way correct with this statement?
+
+**Ra:** I am Ra. You are correct.
+
+78.9: **Questioner:** Now, we have the first, second, and third distortions of free will, love, and light. Am I correct in assuming that the central core of this major galaxy began to form with the third distortion? That was the origin of our Milky Way Galaxy?
+
+**Ra:** I am Ra. In the most basic or teleological sense you are incorrect as the One Infinite Creator is all that there is. In an undistorted seed-form you are correct in seeing the first manifestation visible to the eye of the body complex which you inhabit as the third distortion, light, or to use a technical term, limitless light.
+
+78.10: **Questioner:** Now, I realize that we are on very difficult ground, you might say, for precise terminology here, since it is totally displaced from our system of coordinates for evaluation in our present system of language.  
+  
+These early Logoi that formed in the center of the galaxy wished, I assume, to create a system of experience for the One Creator. Did they then start with no previous experience or information about how to do this? This is difficult to ask.
+
+**Ra:** I am Ra. At the beginning of this creation or, as you may call it, octave there were those things known which were the harvest of the preceding octave. About the preceding creation we know as little as we do of the octave to come. However, we are aware of those pieces of gathered concept which were the tools which the Creator had in the knowing of the self.  
+  
+These tools were of two kinds. Firstly, there was an awareness of the efficiency for experience of mind, body, and spirit. Secondly, there was an awareness of the most efficacious nature or, if you will, significator of mind, body, and spirit. Thirdly, there was the awareness of two aspects of mind, of body, and of spirit that the significator could use to balance all catalyst. You may call these two [[The Matrix]] and [[The Potentiator]].
+
+78.13: **Questioner:** Then we have, at the beginning of this galactic evolution, an archetypical mind that is the product of the previous octave which this galaxy then uses and acts upon under the first distortion of free will to evolve the total experience of this galaxy. Is this correct?
+
+**Ra:** I am Ra. This is quite correct.
+
+78.14: **Questioner:** But, in doing this, there was at the center of the galaxy, the lack of knowledge or the lack of concept of possibility of extending the first distortion, so as to allow for what we have experienced as polarity. Was there any concept of polarity carried through from the previous octave in the sense of service-to-others or service-to-self polarity?
+
+**Ra:** I am Ra. There was polarity in the sense of the mover and the moved. There was no polarity in the sense of service to self and service to others.
+
+78.15: **Questioner:** Then the first experiences, as you say, were in monochrome. Now, was the concept of the seven densities of vibration with the evolutionary process taking place in the discrete densities— was that carried through from the previous octave?
+
+**Ra:** I am Ra. To the limits of our knowledge, which are narrow, the ways of the octave are without time; that is, there are seven densities in each creation infinitely.
+
+78.16: **Questioner:** I am assuming that the central suns of our galaxy, in starting the evolutionary process in this galaxy, provided for, in their plans, the refinement of consciousness through the densities just as we experience it here. However, they did not conceive of the polarization of consciousness with respect to service to self and service to others. Is this correct, then?
+
+**Ra:** I am Ra. This is correct.
+
+78.17-18: **Questioner:** Why do the densities have the qualities that they have? You have named the densities with respect to their qualities, this density being that of— the next, the fourth density being that of love, etc. Can you tell me why these qualities exist in that form? Is it possible to answer this question at all?
+
+**Ra:** I am Ra. The nature of the vibratory range peculiar to each quantum of the octave is such that the characteristics of it may be described with the same certainty with which you perceive a color with your optical apparatus if it is functioning properly.
+
+78.19: **Questioner:** So the original, the first evolution then was planned by the Logos but the first distortion was not extended to the product. At some point this first distortion was extended and the first service-to-self polarity emerged. Is this correct and if so, could you tell me the history of this process and emergence?
+
+**Ra:** I am Ra. As proem let me state that the Logoi always conceived of themselves as offering free will to the sub-Logoi in their care. The sub-Logoi had freedom to experience and experiment with consciousness, the experiences of the body, and the illumination of the spirit. That having been said, we shall speak to the point of your query.  
+  
+The first [[Logos]] to instill what you now see as free will, in the full sense, in its sub-Logoi came to this creation due to contemplation in depth of the concepts or possibilities of conceptualizations of what we have called the significators. The Logos posited the possibility of the mind, the body, and the spirit as being complex. In order for the significator to be what it is not, it then must be granted the free will of the Creator. This set in motion a quite lengthy, in your terms, series of Logoi improving or distilling this seed thought. The key was [[the significator]] becoming a complex.
+
+78.20: **Questioner:** Then our particular Logos, when it created Its own particular creation, was at some point far down the evolutionary spiral of the experiment with the significator becoming what it was not or in effect, creating the polarity that we strive for in third density, and, therefore was, I am assuming, primarily concerned in the design of the archetypes, in designing them in such a way so as they would create the acceleration of this polarization. Is this in any way correct?
+
+**Ra:** I am Ra. We would only comment briefly. It is generally correct. You may fruitfully view each Logos and its design as the Creator experiencing Itself. The seed concept of the significator being a complex introduces two things: firstly, the Creator against Creator in one sub-Logos in what you may call dynamic tension; secondly, the concept of free will, once having been made fuller by its extension into the sub-Logoi known as mind/body/spirit complexes, creates and re-creates and continues to create as a function of its very nature.
+

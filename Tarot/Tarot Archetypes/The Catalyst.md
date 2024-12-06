@@ -7,6 +7,10 @@
 | Classic    | ![[3-empress.jpg]] | ![[10-wheel of fortune.jpg]] | ![[17-star.jpg]] |
 Please check [[3rd Density]], [[Yellow Ray]]
 
+- [[The Catalyst of the Mind]]
+- [[The Catalyst of the Body]]
+- [[The Catalyst of the Spirit]]
+
 The self conscious
 
 46.7: if an entity polarizes toward the service-to-self path, would the anger have the same physical effect that it affects an entity polarized toward the service-to-others path? Would it also cause cancer, or is it just a catalytic effect working in the positively polarized entity?

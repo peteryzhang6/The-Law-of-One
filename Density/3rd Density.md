@@ -73,6 +73,31 @@ Your query contains some internal confusion which causes the answer to be perhap
   
 The Logos planned for entities of mind/body/spirit complex to gain experience until the amount of experience was sufficient for an incarnation. This varied only slightly from second-density entities whose mind/body complexes existed for the purpose of experiencing growth and seeking consciousness. As the third density upon your planet proceeded, as has been discussed, the need for the physical body complex to cease became more rapidly approached due to intensified and more rapidly gained catalyst. This catalyst was not being properly assimilated. Therefore, the, shall we say, lifetimes needed to be shorter that learning might continue to occur with the proper rhythm and increment. Thus more and more opportunities have been offered, as your density has progressed, for disease. May we ask if there are further brief queries before we close?
 
+79.7: **Questioner:** Specifically, in the experience where only the service-to-others polarity in third density evolved for continued evolution into the higher densities, was the veil that is drawn with respect to knowledge of previous incarnations, etc., in effect for those entities?
+
+**Ra:** I am Ra. No.
+
+79.8: **Questioner:** Was the reincarnational process like the one that we experience here in which the third-density body is entered and exited for numerous times during the cycle?
+
+**Ra:** I am Ra. This is correct.
+
+79.9: **Questioner:** Is it possible to give a time of [[incarnation]] with respect to our years and would you do so if it is?
+
+**Ra:** I am Ra. The optimal incarnative period is somewhere close to a measure you call a millennium. This is, as you may say, a constant regardless of other factors of the third-density experience.
+
+79.10: **Questioner:** Then prior to the first extension of the first distortion the veil or loss of awareness did not occur. Then, from this I will make the assumption that this veil or loss of remembering consciously that which occurred before the incarnation was the primary tool for extending the first distortion. Is this correct?
+
+**Ra:** I am Ra. Your correctness is limited. This was the first tool.
+
+79.11: **Questioner:** Then from that statement I assume that the Logos contemplating a mechanism to become what it was not first devised the tool of separating the unconscious from the conscious during what we call physical incarnation to achieve its objective? Is this correct?
+
+**Ra:** I am Ra. Yes.
+
+79.12: **Questioner:** Then from that statement I also assume that many other tools were conceived and used after the first tool of the so-called veil. Is this correct?
+
+**Ra:** I am Ra. There have been refinements.
+
+
 
 82.17 The nature of third density is constant. Its ways are to be learned the same now and ever. Thusly, no matter what form the entity facing these lessons, the lessons and mechanisms are the same. The Creator will learn from Itself. Each entity has unmanifest portions of learning and, most importantly, learning which is involved with other-selves.
 

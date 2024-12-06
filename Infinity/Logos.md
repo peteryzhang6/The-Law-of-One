@@ -46,3 +46,25 @@ Let us attempt to speak upon this interesting subject. In your space/time you an
   
 You may begin to see your relationship to the Logos or sun with which you are most intimately associated. This is not the relationship of parent to child but of Creator, that is Logos, to Creator that is the mind/body/spirit complex, as Logos. When this realization occurs you may then widen the field of “eyeshot,” if you will, infinitely recognizing parts of the Logos throughout the one infinite creation and feeling, with the roots of Mind informing the intuition, the parents aiding their planets in evolution in reaches vast and unknown in the creation, for this process occurs many, many times in the evolution of the creation as an whole.
 
+78.26: **Questioner:** The choice of polarity being the unique circumstance, shall I say, for the archetypical basis for the evolution of consciousness in our particular experience indicates to me that we have arrived, through a long process of the Creator knowing Itself, we’ve arrived at a position of present or maximum efficiency for the design of a process of experience. That design for maximum efficiency is in the roots of consciousness and is the archetypical mind and is a product of everything that has gone before. There are, unquestionably, relatively pure archetypical concepts for the seven concepts for mind, body, and spirit. I feel that the language that we have for these is somewhat inadequate.  
+  
+However, we will continue to attempt to understand, and that is a poor word also, the foundation for this and I am hoping that I have laid the foundation with some degree of accuracy in attempting to set a background for the development of the archetypes of our Logos. Have I left out anything or made any errors, or could you make any comments on my attempt to lay a background for the construction that our Logos used for the archetypes?
+
+**Ra:** I am Ra. Your queries are thoughtful.
+
+79.14: **Questioner:** Thank you. Prior to the experiment to extend the first distortion how many archetypes were there for the creation of the Logos of that time?
+
+**Ra:** I am Ra. There were nine.
+
+79.15: **Questioner:** Nine archetypes, I will guess that those nine were three of mind, three of body, and three of spirit. Is this correct?
+
+**Ra:** I am Ra. This is correct.
+
+79.17: **Questioner:** Could you tell me what they correspond to?
+
+**Ra:** I am Ra. The body, the mind, and the spirit each contained and functioned under the aegis of the matrix, the potentiator, and the significator. The significator of the mind, body, and spirit is not identical to the significator of the mind, body, and spirit complexes.
+
+79.19: **Questioner:** Could you tell me what you mean by “the significator must become a complex?”
+
+**Ra:** I am Ra. To be complex is to consist of more than one characteristic element or concept.
+
