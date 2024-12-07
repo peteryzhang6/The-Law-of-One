@@ -97,7 +97,6 @@ The Logos planned for entities of mind/body/spirit complex to gain experience un
 
 **Ra:** I am Ra. There have been refinements.
 
-
-
 82.17 The nature of third density is constant. Its ways are to be learned the same now and ever. Thusly, no matter what form the entity facing these lessons, the lessons and mechanisms are the same. The Creator will learn from Itself. Each entity has unmanifest portions of learning and, most importantly, learning which is involved with other-selves.
 
+- [[Session 83#10]]

@@ -57,3 +57,6 @@ To understand that infinity exists in all can be interrupted as such:
 >13.6: Infinity became aware. This was the next step.
 
 [[Intelligent Infinity]]
+
+- [[Session 1#1.7]]
+- [[Session 83#9]]

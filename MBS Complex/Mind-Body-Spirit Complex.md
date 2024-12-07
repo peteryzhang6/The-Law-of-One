@@ -206,3 +206,5 @@ Catalyst is offered to the entity. If it is not used by the mind complex it will
 There are, in the case of those you call Wanderers, not only a congenital difficulty in dealing with the third-density vibratory patterns but also a recollection, however dim, that these distortions are not necessary or usual in the home vibration.  
   
 We over-generalize as always, for there are many cases of pre-incarnative decisions which result in physical or mental limitations and distortions, but we feel that you are addressing the question of widespread distortions towards misery of one form or another. Indeed, on some third-density planetary spheres catalyst has been used more efficiently. In the case of your planetary sphere there is much inefficient use of catalyst and, therefore, much physical distortion.
+
+- [[Session 84#8]]

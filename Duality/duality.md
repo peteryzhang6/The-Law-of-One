@@ -34,3 +34,11 @@ learn/teach : through learning from others, one is able to teach oneself and oth
 up/down : looking from up to down or looking downward
 down/up : looking from down to up or looking upward
 ```
+
+---
+
+How can we know good without knowing bad? How do we know joy if we do not know pain?
+- [[Session 82#22]]
+	- Can be described as the common story of why Lucifer went against God. To create the need or strive to a better understanding of what God is.
+- [[Session 82#23]]
+- [[Session 82#28]]

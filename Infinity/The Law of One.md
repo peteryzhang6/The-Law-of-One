@@ -1,5 +1,9 @@
 # The Law of One
-1.7: In truth there is no right or wrong. There is no polarity for all will be, as you would say, reconciled at some point in your dance through the mind/body/spirit complex which you amuse yourself by distorting in various ways at this time. This distortion is not in any case necessary. It is chosen by each of you as an alternative to understanding the complete unity of thought which binds all things. You are not speaking of similar or somewhat like entities or things. You are every thing, every being, every emotion, every event, every situation. You are unity. You are infinity. You are love/light, light/love. You are. This is the Law of One.
+> [[Session 1#1.7]]
+> In truth there is no right or wrong. There is no polarity for all will be, as you would say, reconciled at some point in your dance through the mind/body/spirit complex which you amuse yourself by distorting in various ways at this time. This distortion is not in any case necessary. It is chosen by each of you as an alternative to understanding the complete unity of thought which binds all things. You are not speaking of similar or somewhat like entities or things. You are every thing, every being, every emotion, every event, every situation. You are unity. You are infinity. You are love/light, light/love. You are. This is the Law of One.
+
+> [[Session 2#2.1]]
+> If one is illuminated, are not all illuminated?
 
 4.20: The Law of One, though beyond the limitations of name, as you call vibratory sound complexes, may be approximated by stating that all things are one, that there is no polarity, no right or wrong, no disharmony, but only identity. All is one, and that one is love/light, light/love, the Infinite Creator.
 
