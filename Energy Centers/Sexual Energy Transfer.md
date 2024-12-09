@@ -45,3 +45,5 @@
 
 Sexual activities can be seen as the interaction of two polarized entities working together to balance the energy and penetrating [[The Veil]].
 - one example can be the interaction of an entity of love/light and an entity of light/love melding together to create infinity
+
+- [[Session 87#18]], 20, 21, 22, 23, 24, 25, 26, 27, 28

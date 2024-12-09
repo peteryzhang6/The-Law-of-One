@@ -18,3 +18,4 @@ This should also be reviewed with [[The Choice]] as one contemplate the signific
 
 **Ra:** I am Ra. The original significators may undifferentiatedly be termed the mind, the body, and the spirit.
 
+[[Session 88#17]]

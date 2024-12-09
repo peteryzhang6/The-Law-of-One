@@ -1,3 +1,7 @@
+---
+aliases:
+  - STS
+---
 # Service to Self
 Check [[STO-STS]]
 
@@ -77,3 +81,5 @@ Also Check [[Orion]] - STS Social Memory Complex
 **Ra:** I am Ra. We may not use examples of known beings due to the infringement this would cause. Thus we must be general.  
   
 The negatively oriented being will be one who feels that it has found power that gives meaning to its existence precisely as the positive polarization does feel. This negative entity will strive to offer these understandings to other-selves, most usually by the process of forming the elite, the disciples, and teaching the need and rightness of the enslavement of other-selves for their own good. These other-selves are conceived to be dependent upon the self and in need of the guidance and the wisdom of the self.
+
+[[Session 87#6]], 7, 8, 9, 11, 12, 14, 15, 16

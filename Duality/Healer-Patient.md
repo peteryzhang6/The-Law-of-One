@@ -165,3 +165,7 @@ The key is not in the continuation of the dematerialization of distortion to the
 We might note further that when the one wishing to be healed, though sincere, remains unhealed, as you call this distortion, you may consider pre-incarnative choices and your more helpful aid to such an entity may be the suggestion that it meditate upon the affirmative uses of whatever limitations it might experience. We would also note that in these cases the indigo-ray workings are often of aid.  
   
 Other than these notes, we do not wish to further comment upon your statement at this working.
+
+---
+
+Check [[Dreaming]]
