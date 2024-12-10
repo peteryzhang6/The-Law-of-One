@@ -1,7 +1,7 @@
 # Possession
 A concept used to describe the blockage of heart chakra or [[Green Ray]]
 
-To use the Yin/Yang format or Law of Doubling of 1, 2, 4, we can break down possession in terms of or types of possession mentioned by Ra, into:
+To use the Yin/Yang Fu Xi ([[Si Xiang]]) concept or Kabbalah's [[four elements]] concept, we can break down the 4 types of possession mentioned by Ra into:
 
 | Table 1      | Inward Force            | Outward Force          |
 | ------------ | ----------------------- | ---------------------- |

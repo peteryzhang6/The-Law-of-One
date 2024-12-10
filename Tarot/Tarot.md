@@ -80,3 +80,6 @@ When our Logos designed this particular evolution of experience It decided to us
 Let us observe your second density. Many come more rapidly to third density than others not because of an innate efficiency of catalysis but because of unusual opportunities for investment. In just such a way those of fourth density may invest third, those of fifth density may invest fourth. When fifth density has been obtained the process takes upon itself a momentum based upon the characteristics of wisdom when applied to circumstance. The Logos Itself, then, in these instances provides investment opportunities, if you wish to use that term. May we enquire if there are any brief queries at this space/time?
 
 [[Session 88#13]], 14, 16, 17, 19, 23, 24
+
+[[Session 89#20]], 44
+

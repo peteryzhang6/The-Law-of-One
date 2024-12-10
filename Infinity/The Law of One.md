@@ -48,3 +48,7 @@ Both together: “Rejoice then and purify this place in the Law of One. Let no t
 **7.15**: The Law of One blinks neither at the light or the darkness, but is available for service to others and service to self.
 
 **7.17:** The distortion lies in the fact that those who seek to serve the self are seen by the Law of One as precisely the same as those who seek to serve others, for are all not one? To serve yourself and to serve other is a dual method of saying the same thing, if you can understand the essence of the Law of One.
+
+---
+
+[[Session 90#29]]

@@ -162,3 +162,4 @@ As fourth density occurs there is a new planet and new physical vehicle system g
   
 The fourth and fifth densities are quite independent, the positive polarity functioning with no need of negative and vice-versa. It is to be noted that in attempting to sway third-density mind/body/spirit complexes in choosing polarity there evolves a good bit of interaction between the two polarities. In sixth density, the density of unity, the positive and negative paths must needs take in each other for all now must be seen as love/light and light/love. This is not difficult for the positive polarity, which sends love and light to all other-selves. It is difficult enough for service-to-self polarized entities that at some point the negative polarity is abandoned.
 
+- [[Session 90#4]]
