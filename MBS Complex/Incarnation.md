@@ -64,3 +64,6 @@ The final reason is within the mind/body/spirit totality or the social memory co
 # Past Incarnations/experiences
 9.2 However, such information as this is carefully guarded by your mind/body/spirit being totality so that your present space/time experiences will be undiluted.
 
+---
+
+[[Session 92#18]]

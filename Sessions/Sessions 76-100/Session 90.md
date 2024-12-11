@@ -63,7 +63,7 @@ The mechanism of the fifth-density entity is from density to density and is magi
 # 14
 **Questioner:** Now, as I understand it the archetypes are the biases of a very fundamental nature that, under free will, generate the experiences of each entity. Is this correct?
 
-**Ra:** I am Ra. The [[archetypical mind]] is part of that mind which informs all experience. Please recall the definition of the archetypical mind as the repository of those refinements to the cosmic or all-mind made by this particular Logos and peculiar only to this Logos. Thus it may be seen as one of the roots of mind, not the deepest but certainly the most informative in some ways. The other root of mind to be recalled is that racial or planetary mind which also informs the conceptualizations of each entity to some degree.
+**Ra:** I am Ra. The [[Archetypical Mind]] is part of that mind which informs all experience. Please recall the definition of the archetypical mind as the repository of those refinements to the cosmic or all-mind made by this particular Logos and peculiar only to this Logos. Thus it may be seen as one of the roots of mind, not the deepest but certainly the most informative in some ways. The other root of mind to be recalled is that racial or planetary mind which also informs the conceptualizations of each entity to some degree.
 # 15
 **Questioner:** At what point in the evolutionary process does the archetypical mind first have effect upon the entity?
 

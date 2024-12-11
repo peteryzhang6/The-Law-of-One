@@ -20,3 +20,5 @@ From [[The Significator]]
 The mind itself became an actor possessed of free will and, more especially, will. As the Significator of the mind, the Hierophant has the will to know, but what shall it do with its knowledge, and for what reasons does it seek? The potential[s] of a complex significator are manifold.  
   
 Are there any brief queries at this working?
+
+[[Session 92#15]]

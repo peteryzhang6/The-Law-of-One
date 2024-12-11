@@ -47,3 +47,7 @@ Exercise Three. Gaze within a mirror. See the Creator.
 Exercise Four. Gaze at the creation which lies about the mind/body/spirit complex of each entity. See the Creator.  
   
 The foundation or prerequisite of these exercises is a predilection towards what may be called meditation, contemplation, or [[Prayer]]. With this attitude, these exercises can be processed. Without it, the data will not sink down into the roots of the tree of mind, thus enabling and ennobling the body and touching the spirit.
+
+---
+
+[[Session 93#23]]

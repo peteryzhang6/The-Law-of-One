@@ -10,3 +10,4 @@
 
 **Ra:** I am Ra. As you observe Archetype Six you may see the student of the mysteries being transformed by the need to choose betwixt the light and the dark in mind.
 
+[[Session 92#17]]

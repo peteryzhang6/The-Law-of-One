@@ -1,7 +1,12 @@
 # The Matrix of the Mind
-![[tarot1.jpg|400]]
+<- [[The Great Way of the Mind]] | [[The Potentiator of the Mind]] ->
 
-*Thoughts when observing the image:* The man represents the conscious and the ball he is holding represents the eyes which see the world. The cage represents the subconscious or deep mind and the bird represents the portion of subconscious that has yet to become conscious, to take flight.
+| Law of One           | Classic                  |
+| -------------------- | ------------------------ |
+| ![[tarot1.jpg\|300]] | ![[1-magician.jpg\|300]] |
+
+
+TODO: *Thoughts when observing the image:* The man represents the conscious and the ball he is holding represents the eyes which see the world. The cage represents the subconscious or deep mind and the bird represents the portion of subconscious that has yet to become conscious, to take flight.
 
 78.33: **Questioner:** It just seemed to me that since the planets were an outgrowth of the Logos and since the archetypical mind was the foundation for the experience that the planets of this Logos would be in some way related. We will certainly follow your suggestion.  
   
@@ -13,4 +18,6 @@ You have spoken of the Magician as a basic archetype and that this seems to have
   
 We now address your query as to the archetype which is the Matrix of the Mind. As to its name, the name of Magician is understandable when you consider that consciousness is the great foundation, mystery, and revelation which makes this particular density possible. The self-conscious entity is full of the magic of that which is to come. It may be considered first, for the mind is the first of the complexes to be developed by the student of spiritual evolution.
 
-[[Session 89#21]]
+- [[Session 89#21]]
+- [[Session 91#18]], 19, 20, 21, 22, 23, 24, 25, 26, 27, 28, 29, 30, 31, 32, 33, 34, 35, 
+- [[Session 92#20]]

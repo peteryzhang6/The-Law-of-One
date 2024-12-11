@@ -1,7 +1,6 @@
 ---
 aliases:
   - The Magician
-  - The Matrix of the Mind
 tags:
   - Tarot
 ---

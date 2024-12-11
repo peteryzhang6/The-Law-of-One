@@ -95,7 +95,7 @@ The various unmanifested activities of the self were found to be productive in s
 # 18
 **Questioner:** Specifically, by what process in the first case, when two polarized entities would attempt to penetrate the veil, whether they be positively or negatively polarized— specifically by what technique would they penetrate the veil?
 
-**Ra:** I am Ra. The penetration of the veil may be seen to begin to have its roots in the gestation of green-ray activity, that all-compassionate love which demands no return. If this path is followed the higher energy centers shall be activated and crystallized until [[the adept]] is born. Within the adept is the potential for dismantling the veil to a greater or lesser extent that all may be seen again as one. The other-self is primary catalyst in this particular path to the piercing of the veil, if you would call it that.
+**Ra:** I am Ra. The penetration of the veil may be seen to begin to have its roots in the gestation of green-ray activity, that all-compassionate love which demands no return. If this path is followed the higher energy centers shall be activated and crystallized until [[The Adept]] is born. Within the adept is the potential for dismantling the veil to a greater or lesser extent that all may be seen again as one. The other-self is primary catalyst in this particular path to the piercing of the veil, if you would call it that.
 # 19
 **Questioner:** What was the mechanism of the very first veiling process? I don’t know if you can answer that. Would you try to, though, answer that?
 
