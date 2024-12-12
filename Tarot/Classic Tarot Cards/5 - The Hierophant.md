@@ -1,10 +1,7 @@
 ---
 aliases:
   - The Heirophant
-  - Significator of the Mind
-  - Tarot V
 tags:
-  - Tarot
 ---
 <- [4 - The Emperor](4%20-%20The%20Emperor.md) | [6 - The Lovers](6%20-%20The%20Lovers.md) ->
 # 5 - The Hierophant

@@ -3,7 +3,10 @@
 
 From [[The Significator]]
 
-![[tarot5.jpg|400]]
+| Law of One           | Classic                    |
+| -------------------- | -------------------------- |
+| ![[tarot5.jpg\|300]] | ![[5-hierophant.jpg\|300]] |
+
 
 79.37: **Questioner:** What would be the Hierophant?
 
@@ -22,3 +25,9 @@ The mind itself became an actor possessed of free will and, more especially, wil
 Are there any brief queries at this working?
 
 [[Session 92#15]]
+
+[[Session 97#10]], 11, 12, 13, 16, 17, 18
+
+[[Session 99#7]], 
+
+[[Session 105#19]]

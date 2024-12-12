@@ -1,8 +1,7 @@
 ---
 aliases:
   - The Lovers
-tags:
-  - Tarot
+tags: []
 ---
 <- [5 - The Hierophant](5%20-%20The%20Hierophant.md) | [7 - The Chariot](7%20-%20The%20Chariot.md) ->
 # 6 - The Lovers

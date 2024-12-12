@@ -28,8 +28,8 @@ The repo currently contains files I created previously in other locations, thus 
 # Table of Contents
 - [[Prayer]] and [[Chant]]
 # TODOs
-- [ ] (currently working on) go through Law of One session by session to extract excerpts and categorize them into appropriate files along with minor comments
-- [ ] detailed comments and understanding will be added and further categorization and breakdown of large files into smaller digestible files 
+- [x] (currently working on) go through Law of One session by session to extract excerpts and categorize them into appropriate files along with minor comments
+- [ ] detailed comments and understanding will be added and further categorization and breakdown of large files into smaller digestible files; each session will also be added for easier linking and comprehension
 # Related Repos
 - [Peter Yunpeng Zhang](https://github.com/peteryzhang6/pyzzyp) 
 	- Private repo

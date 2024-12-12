@@ -1,10 +1,7 @@
 ---
 aliases:
   - The High Priestes
-  - The Potentiator of the Mind
-  - Tarot II
-tags:
-  - Tarot
+tags: []
 ---
 <- [1 - The Magician](1%20-%20The%20Magician.md) | [3 - The Empress](3%20-%20The%20Empress.md) ->
 # 2 - The High Priestess

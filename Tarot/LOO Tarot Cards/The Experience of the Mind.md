@@ -16,3 +16,5 @@ The next archetype, the Empress, is the Catalyst of the Mind, that which acts up
 **Ra:** I am Ra. Though far too rigid in your statements, you perceive correct relationships. There is a great deal of dynamic interrelationship in these first four archetypes.
 
 [[Session 94#12]], 13, 15, 16, 18, 19, 20, 21, 22, 23, 24, 26, 27, 29, 30
+
+[[Session 95#20]], 21, 22, 23, 24, 25, 26

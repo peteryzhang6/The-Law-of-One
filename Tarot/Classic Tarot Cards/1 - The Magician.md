@@ -1,8 +1,7 @@
 ---
 aliases:
   - The Magician
-tags:
-  - Tarot
+tags: []
 ---
 <- [0 - The Fool](0%20-%20The%20Fool.md) | [2 - The High Priestess](2%20-%20The%20High%20Priestess.md) ->
 # 1 - The Magician

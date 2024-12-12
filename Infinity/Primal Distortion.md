@@ -24,3 +24,5 @@ These are last distortions to unite when a being raises from 6D to 7D or the fir
 **7.15:** It should be noted, carefully pondered, and accepted, that the Law of One is available to any social memory complex which has decided to strive together for any seeking of purpose, be it service to others or service to self. The laws, which are the **primal distortions** of the Law of One, then are placed into operation and the illusion of space/time is used as a medium for the development of the results of those choices freely made. Thus all entities learn, no matter what they seek. All learn the same, some rapidly, some slowly.
 
 *My Thoughts:* The primal distortions left unchecked within the individual and refined to the highest potential can be defined as a all devouring beast. The beast is free, due to Law of Free Will; is adaptive, due to its ability to learn; and is regenerative due to its heightened regeneration ability. The primal distortions disciplined and controlled with the conscious mind is one of the Godly abilities, of savior - the ability to set others free; to teach others what it knows; and the ability to heal.
+
+[[Session 100#9]]

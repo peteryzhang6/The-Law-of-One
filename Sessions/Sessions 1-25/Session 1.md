@@ -1,5 +1,5 @@
 # Session 1
-[[Session 2]] ->
+<- [[Session 106]] | [[Session 2]] ->
 # 1.0
 **Ra:** I am Ra. I have not spoken through this instrument before. We had to wait until she was precisely tuned, as we send a narrow-band vibration. We greet you in the love and in the light of our Infinite Creator.  
   

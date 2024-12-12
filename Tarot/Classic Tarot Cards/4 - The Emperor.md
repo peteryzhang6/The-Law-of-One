@@ -1,10 +1,7 @@
 ---
 aliases:
   - The Emperor
-  - Experience of the Mind
-  - Tarot IV
-tags:
-  - Tarot
+tags: []
 ---
 <- [3 - The Empress](3%20-%20The%20Empress.md) | [5 - The Hierophant](5%20-%20The%20Hierophant.md) ->
 # 4 - The Emperor

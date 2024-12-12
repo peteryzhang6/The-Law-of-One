@@ -18,3 +18,4 @@
 - If the serpent is a symbol of wisdom, then it can used to explain the serpent tempting Eve in Bible's Genesis, where Eve desired wisdom from the tree of good and evil. 
 
 [[Session 94#11]], 14, 
+

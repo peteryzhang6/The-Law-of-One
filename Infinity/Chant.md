@@ -102,3 +102,7 @@ Chants focusing on the Foreverness of [[7th Density]] consciousness
 Chants focusing on personal evolution and a new sense of Beingness of [[8th Density]] consciousness
 
 I don't know what chants can be categorized as 8D but I think it would be one of the act to learn new chants and gain new understanding. It would also be something of a phoenix. Maybe in consciousness term, of total forgetting and re-rememberance.
+
+---
+
+- [[Session 95#7]]
