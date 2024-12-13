@@ -20,6 +20,6 @@ In the first case only the one individual, purified of all flaws, could move a m
 We cannot say what is beyond this dissolution of the unified self with all that there is, for we still seek to become all that there is, and still are we Ra. Thus our paths go onward.
 
 # Other
-- [[LOO Pyramids]]
+- [[Pyramids]]
 - [[LOO Crystal Healing]]
 - [[Density]]

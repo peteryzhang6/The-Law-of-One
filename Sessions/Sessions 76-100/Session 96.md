@@ -2,13 +2,13 @@
 <- [[Session 95]] | [[Session 97]] ->
 
 **September 9, 1982**
-# 0
+# 96.0
 **Ra:** I am Ra. I greet you in the love and in the light of the One Infinite Creator. We communicate now.
-# 1
+# 96.1
 **Questioner:** Could you first please give me the condition of the instrument?
 
 **Ra:** I am Ra. The physical energy deficit is significantly greater than the last asking. There has been substantive lessening also of the vital energies, although the perquisite degree of energy for mental/emotional distortions of normalcy are yet available.
-# 2
+# 96.2
 **Questioner:** Could you tell me the cause of the lessening of the physical and vital energies?
 
 **Ra:** I am Ra. We found the need of examining the mental configurations of the instrument before framing an answer due to our reluctance to infringe upon its free will. Those concepts relating to the spiritual contemplation of personal catalyst have been appreciated by the entity so we may proceed.
@@ -18,11 +18,11 @@ This entity has an habitual attitude which is singular; that is, when there is s
 Although this entity attempted clear communication upon this matter, and although each in the support group did likewise, the amount of blue-ray work necessary to uncover and grasp the nature of the catalyst was not effected. Therefore, there was an opening, quite rare for this mind/body/spirit complex, and into this opening the one which greets you moved and performed what may be considered to be the most potent of its purely magical manifestations to this present nexus, as you know time.
 
 It is well that this instrument is not distorted towards what you may call hysteria, for the potential of this working was such that had the instrument allowed fear to become greater than the will to persevere when it could not breathe, each attempt at respiration would have been even more nearly impossible until the suffocation occurred which was desired by the one which greets you in its own way. Thus the entity would have passed from this incarnation.
-# 3
+# 96.3
 **Questioner:** Does this threat, shall I say, still exist and, if so, is there something we can do to alleviate it?
 
 **Ra:** I am Ra. This threat no longer exists, if you wish to phrase this greeting in this manner. The communication which was effected by the scribe and then by the questioner did close the opening and enable the instrument to begin assimilating the catalyst it had received.
-# 4
+# 96.4
 **Questioner:** The instrument asks, since this has to do with that house, is the house capable of being transformed by the painting and cleaning? We are able to undertake… that is, we don’t plan to put down all new carpets. Are the carpets that are there now acceptable?
 
 I want to either bring this particular house up to acceptable limits— you say it will be neutral after we do the salting. I have only a concern with the conditions for our work here. The physical location isn’t that important. In fact I don’t consider this important at all. If the house is not capable of being brought up to good conditions that will afford us no problems of the type we’ve experienced then I may select a different one. It’s not that important. Would Ra comment on this?

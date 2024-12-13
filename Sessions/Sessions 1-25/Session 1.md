@@ -1,11 +1,13 @@
 # Session 1
 <- [[Session 106]] | [[Session 2]] ->
+
+**January 15, 1981**
 # 1.0
 **Ra:** I am Ra. I have not spoken through this instrument before. We had to wait until she was precisely tuned, as we send a narrow-band vibration. We greet you in the love and in the light of our Infinite Creator.  
   
 We have watched your group. We have been called to your group, for you have a need for the diversity of experiences in channeling which go with a more intensive, or as you might call it, advanced approach to the system of studying the patterns of the illusions of your body, your mind, and your spirit, which you call seeking the truth. We hope to offer you a somewhat different slant upon the information which is always and ever the same.  
   
-The Confederation of Planets in the Service of the Infinite Creator has only one important statement. That statement, my friends, as you know, is “All things, all of life, all of the creation is part of one original thought.”  
+The Confederation of Planets in the Service of the Infinite Creator has only one important statement. That statement, my friends, as you know, is “All things, all of life, all of the creation is part of [[one original thought]].”  
   
 We will exercise each channel if we are able to. The reception of our beam is a somewhat more advanced feat than some of the more broad vibration channels opened by other members for more introductory and intermediate work.  
   
@@ -63,11 +65,11 @@ Does this form a sufficient amount of information, or could we speak further?
 # 1.7
 **Questioner:** [The question was lost because the questioner was sitting too far from the tape recorder to be recorded.]
 
-**Ra:** I am Ra. Consider, if you will, that the universe is infinite. This has yet to be proven or disproven, but we can assure you that there is no end to your selves, your understanding, what you would call your journey of seeking, or your perceptions of the creation.  
+**Ra:** I am Ra. Consider, if you will, that the [[universe]] is infinite. This has yet to be proven or disproven, but we can assure you that there is no end to your selves, your understanding, what you would call your journey of seeking, or your perceptions of the creation.  
   
 That which is infinite cannot be many, for many-ness is a finite concept. To have infinity you must identify or define that infinity as unity; otherwise, the term does not have any referent or meaning. In an Infinite Creator there is only unity. You have seen simple examples of unity. You have seen the prism which shows all colors stemming from the sunlight. This is a simplistic example of unity.  
   
-In truth there is no right or wrong. There is no polarity for all will be, as you would say, reconciled at some point in your dance through the mind/body/spirit complex which you amuse yourself by distorting in various ways at this time. This distortion is not in any case necessary. It is chosen by each of you as an alternative to understanding the complete unity of thought which binds all things. You are not speaking of similar or somewhat like entities or things. You are every thing, every being, every emotion, every event, every situation. You are unity. You are infinity. You are love/light, light/love. You are. This is the Law of One.
+In truth there is no right or wrong. There is no polarity for all will be, as you would say, reconciled at some point in your dance through the [[Mind-Body-Spirit Complex|mind/body/spirit complex]] which you amuse yourself by distorting in various ways at this time. This distortion is not in any case necessary. It is chosen by each of you as an alternative to understanding the complete unity of thought which binds all things. You are not speaking of similar or somewhat like entities or things. You are every thing, every being, every emotion, every event, every situation. You are unity. You are infinity. You are love/light, light/love. You are. This is the Law of One.
 
 May we enunciate this law in more detail?
 # 1.8

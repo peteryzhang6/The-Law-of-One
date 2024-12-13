@@ -1,4 +1,7 @@
 # Confederation of Planets
+[[Session 1#1]]
+>The Confederation of Planets in the Service of the Infinite Creator has only one important statement. That statement, my friends, as you know, is “All things, all of life, all of the creation is part of one original thought.”  
+
 16.33: There are many Confederations. This Confederation works with the planetary spheres of seven of your galaxies, if you will, and is responsible for the callings of the densities of these galaxies.
 
 18.13: As in the Confederation which works with your peoples, each Confederation is a group of specialized individual social memory complexes, each doing that which it expresses to bring into manifestation.

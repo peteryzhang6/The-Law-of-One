@@ -1,8 +1,7 @@
-2.4: The larger pyramids were built by our ability using the forces of One. The stones are alive. It has not been so understood by the mind/body/spirit distortions of your culture. The purposes of the pyramids were two:
-- Ra also mentioned in later sessions that the pyramid is a timeless structure, which means it lies not in time? only in space and if it were alive that means the structure of the pyramids will adapt(?) to the environment or condition of the Earth?
-- Firstly, to have a properly oriented place of initiation for those who wished to become purified or initiated channels for the Law of One.
-- Two, we wished then to carefully guide the initiates in developing a healing of the people whom they sought to aid and the planet itself. Pyramid after pyramid charged by the crystal and initiate were designed to balance the incoming energy of the One Creation with the many and multiple distortions of the planetary mind/body/spirit. In this effort we were able to continue work that brothers within the Confederation had effected through building of other crystal-bearing structures and thus complete a ring, if you will, of these about the Earth’s surface.
-- There are multiple pyramids across the Earth's surface and Giza is the only one that is currently showing or has not been destroyed
+# Pyramids
+
+## Purpose of the Giza Pyramid
+![[Session 2#2.4]]
 
 # 3.6
 The so-called [The Great Pyramid of Giza](The-Law-of-One/Places/The%20Great%20Pyramid%20of%20Giza.md) had two capstones. One was of our design and was of smaller and carefully contrived pieces of the material upon your planet which you call “granite.” This was contrived for crystalline properties and for the proper flow of your atmosphere via a type of what you would call “chimney.”

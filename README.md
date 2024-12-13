@@ -20,11 +20,10 @@ This repository is of an seeking/understanding of The Law of One by the entity P
 The excerpts taken from The Law of One will be labelled like that in L/L Research Law of One website, example: (1.10).
 
 The format will be one that like those often used in bible studies, by taking excerpts that relate to each other, to build a comprehensive understanding and relation on the many topics. Like Ra, those in L/L Research Channelings, and many other spiritual teachers often said: "Take what you resonate and leave those that doesn't." Spiritual materials outside of Law of One will also be added to further support and unite understandings.
-- 1.10: Thus, to attempt to discern and weave your way through as many group mind/body/spirit distortions as possible among your peoples in the course of your teaching is a very good effort to make.
+- [[Session 1#1.10]]: Thus, to attempt to discern and weave your way through as many group mind/body/spirit distortions as possible among your peoples in the course of your teaching is a very good effort to make.
 - 12.25: We interpret the Law of One, but not to the extent of advice. #TODO
 
 The repo currently contains files I created previously in other locations, thus may lack the inter-connection and formats. And I currently intent this repo to be used with a focus solely on the development of individual mind/body/spirit complex, thus materials that doesn't focus on the mind/body/spirit complex will be excluded or simply jotted down, not edited, and be in the supplementary repository. If one have personal distortions towards these supplementary materials, one can simply go study it in Law of One website or check supplementary repo.
-
 # Table of Contents
 - [[Prayer]] and [[Chant]]
 # TODOs

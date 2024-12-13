@@ -14,9 +14,9 @@ Ra: We search your mind to find the vibration *Alrac*. It is this vibration from
 - When Ra searches through the vibration, it found a vibration in reverse of Carla = Alrac
 - *thoughts*: if dream world is in reverse, then my [[first dream]] can be seen as the progress from harmony to disharmony is what I saw before I incarnated, and progress from disharmony to harmony is what I am here to do.
 # 2.1
-[[The Infinite Creator|If one is illuminated, are not all illuminated?]]
+[[The One Infinite Creator|If one is illuminated, are not all illuminated?]]
 
 To [[Learn-Teach|teach/learn]] is the Law of One in one of its most elementary distortions.
 
 # 7.12
-When your peoples grasp [[Infinity]], then and only then, can the gateway be opened to the Law of One.
+When your peoples grasp [[My Understanding of Infinity]], then and only then, can the gateway be opened to the Law of One.

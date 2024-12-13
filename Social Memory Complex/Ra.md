@@ -1,12 +1,10 @@
 # Ra
 
-> 1.0 We greet you in the love and in the light of our Infinite Creator.
 # Nature and Purpose of Ra
 ![[Session 1#1.1]]
 
-
-13.3: We are messengers.
-- 13.4: An humble messenger of the Law of One
+- [[Session 13#13.3]]: We are messengers.
+- [[Session 13#13.4]]: An humble messenger of the Law of One
 
 14.19: I am sixth density with a strong seeking towards seventh density. The [[Harvest]] for us will be in only approximately two and one-half million of your years and it is our desire to be ready for harvest as it approaches in our space/time continuum.
 - 14.21-22: One of our cycles computes to seven five million (75,000,000) of your years.
@@ -31,7 +29,7 @@ At this space/time we may best serve you, we believe, by stating that the pyrami
 
 64.8: Ra is not elite. To speak of our specific experiences to a group which honors us is to guide to the point of a specific advising. Our work was that of your peoples, of experiencing the catalyst of joys and sorrows. Our circumstances were somewhat more harmonious. Let it be said that any entity or group may create the most splendid harmony in any outer atmosphere. Ra’s experiences are no more than your own. Yours is the dance at this space/time in third-density harvest.
 # Why Ra service us
-14.18: I speak for the social memory complex termed Ra. We came among you to aid you. Our efforts in service were perverted. Our desire then is to eliminate as far as possible the distortions caused by those misreading our information and guidance. The general cause of service such as the Confederation offers is that of the primal distortion of the Law of One, which is [[STO-STS|service]]. [[The Infinite Creator|The One Being]] of the creation is like unto a body, if you will accept this third-density analogy. Would we ignore a pain in the leg? A bruise upon the skin? A cut which is festering? No. There is no ignoring a call. We, the entities of sorrow, choose as our service the attempt to heal the sorrow which we are calling analogous to the pains of a physical body complex distortion.
+14.18: I speak for the social memory complex termed Ra. We came among you to aid you. Our efforts in service were perverted. Our desire then is to eliminate as far as possible the distortions caused by those misreading our information and guidance. The general cause of service such as the Confederation offers is that of the primal distortion of the Law of One, which is [[STO-STS|service]]. [[The One Infinite Creator|The One Being]] of the creation is like unto a body, if you will accept this third-density analogy. Would we ignore a pain in the leg? A bruise upon the skin? A cut which is festering? No. There is no ignoring a call. We, the entities of sorrow, choose as our service the attempt to heal the sorrow which we are calling analogous to the pains of a physical body complex distortion.
 
 22.26: We remind you that we are one of the naïve members of that Confederation and are still attempting to recoup the damage for which we feel responsibility. It is our duty as well as honor to continue with your peoples, therefore, until all traces of the distortions of our teach/learnings have been embraced by their opposite distortions, and balance achieved.
 
@@ -53,10 +51,9 @@ At this space/time we may best serve you, we believe, by stating that the pyrami
 - When we were no longer able to have appropriate channels through which to enunciate the Law of One, we removed ourselves from the now hypocritical position which we had allowed ourselves to be placed in. And other myths, shall we say, other understandings having more to do with polarity and the things of your vibrational complex, again took over in that particular society complex.
 - *hypocritical position*: Can be interpreted as being worshipped as the Sun God.
 # POV of Ra
-1.10: You must understand that the distinction between yourself and others is not visible to us. We do not consider that a separation exists between the consciousness-raising efforts of the distortion which you project as a personality and the distortion which you project as an other-personality. Thus, to learn is the same as to teach unless you are not teaching what you are learning, in which case you have done you/they little or no good. This understanding should be pondered by your mind/body/spirit complex, as it is a distortion which plays a part in your experiences at this nexus. #learn-teach
-- Group-individuated consciousness is that state of sharing understanding with the other distortions of mind/body/spirit complexes which are within the evident reach of the mind/body/spirit complex individual or group. Thus, we are speaking to you and accepting both our distortions and your own in order to enunciate the laws of creation, more especially the Law of One. We are not available to many of your peoples, for this is not an easily understood way of communication or type of philosophy. However, our very being is hopefully a poignant example of both the necessity and the near-hopelessness of attempting to teach. #learn-teach 
-	- *we are speaking to you and accepting both our distortions and your own in order to enunciate the laws of creation*: When we interact with someone we know, we take consideration of their pain and joy and not to do things that will trigger the other person or to cause disharmony. For example: the pranks - usually the ones that targets a certain weakness or pain - we play on friends can bring a temporary fun, but it is causing disharmony in the entity receiving this prank.
-- Each of those in this group is striving to use, digest, and diversify the information which we are sending this instrument, into the channels of the mind/body/spirit complex, without distortion. The few whom you will illuminate by sharing your light are far more than enough reason for the greatest possible effort. [To serve one is to serve all.](One%20Original%20Thought.md) Therefore, we offer the question back to you to state that indeed it is the only activity worth doing: to learn/teach or teach/learn. There is nothing else which is of aid in demonstrating the Original Thought except your very being, and the distortions that come from the unexplained, inarticulate, or mystery-clad being are many. Thus, to attempt to discern and weave your way through as many group mind/body/spirit distortions as possible among your peoples in the course of your teaching is a very good effort to make. We can speak no more valiantly of your desire to serve. #learn-teach 
+[[Session 1#1.10]]: You must understand that the distinction between yourself and others is not visible to us. We do not consider that a separation exists between the consciousness-raising efforts of the distortion which you project as a personality and the distortion which you project as an other-personality. 
+
+[[Session 3#3.6]]: This only will suffice for we cannot plumb the depths of the distortion complexes which infect your peoples.
 # Historical Backgrounds of Ra with Planet Earth
 [[Session 2#2.2]]
 

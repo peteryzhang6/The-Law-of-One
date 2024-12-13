@@ -1,11 +1,13 @@
 # Session 5
 <- [[Session 4]] | [[Session 6]] ->
 
-January 23, 1981
+**January 23, 1981**
 
-5.0 Ra: I am Ra. I greet you in the love and the light of the Infinite Creator. I communicate now.
+# 5.0
+Ra: I am Ra. I greet you in the love and the light of the Infinite Creator. I communicate now.
 
-5.1 Questioner: The last time we communicated we were speaking of learning of healing. It is my impression that from what you gave to us in the earlier session that it is necessary to first purify the self by certain disciplines and exercises. Then in order to heal a patient, it is necessary, by example, and possibly certain exercises, to create a mental configuration in the patient that allows him to heal himself. Am I correct?
+# 5.1
+Questioner: The last time we communicated we were speaking of learning of healing. It is my impression that from what you gave to us in the earlier session that it is necessary to first purify the self by certain disciplines and exercises. Then in order to heal a patient, it is necessary, by example, and possibly certain exercises, to create a mental configuration in the patient that allows him to heal himself. Am I correct?
 
 Ra: I am Ra. Although your learn/understanding distortion is essentially correct, your choice of vibratory sound complex is not entirely as accurate as this language allows.
 
@@ -13,7 +15,8 @@ It is not by example that the healer does the working. The working exists in and
 
 The healing working is congruent in that it is a form of channeling some distortion of the intelligent infinity.
 
-5.2 Questioner: We have decided to accept, if offered, the honor/duty of learning/teaching the healing process. I would ask as to the first step which we should accomplish in becoming effective healers.
+# 5.2
+Questioner: We have decided to accept, if offered, the honor/duty of learning/teaching the healing process. I would ask as to the first step which we should accomplish in becoming effective healers.
 
 Ra: I am Ra. We shall begin with the first of the three teachings/learnings.
 
@@ -41,7 +44,8 @@ At this time we would suggest closing the description until the next time of wor
 
 We can answer a query if it is a short one before we leave this instrument.
 
-5.3 Questioner: Is the instrument comfortable? Is there any other thing that would increase the instrument’s comfort? That’s all.
+# 5.3
+Questioner: Is the instrument comfortable? Is there any other thing that would increase the instrument’s comfort? That’s all.
 
 Ra: I am Ra. The candle could be rotated clockwise approximately 10° each session to improve the flow of spiraled energy through the being’s receiving mechanisms. This particular configuration is well otherwise. But we ask that the objects described and used be centered with geometric care and checked from time to time. Also that they not be exposed to that space/time in which work is not of importance.
 

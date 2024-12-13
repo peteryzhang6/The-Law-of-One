@@ -3,7 +3,7 @@ An activity where the focus of the mind is placed on [[Breathing]] or silence or
 
 The most common form is a sitting with leg crossed like Lotus Pose, Full Lotus.
 
-The reason for Lotus Pose or Full Lotus is in [[LOO Pyramids]]
+The reason for Lotus Pose or Full Lotus is in [[Pyramids]]
 - I also suspect in Full Lotus position, one forms the pentagram with the legs with arms connecting the two feet. And in Tarot, pentagram signifies earth, thus sitting on ground and rock and meditate will boost one's energy most significantly?
 - 66.5
 

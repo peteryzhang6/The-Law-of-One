@@ -32,7 +32,7 @@ One need to realize that within the mind, it contains both the good and the bad.
 
 Also check:
 - [[Duality]]
-- [[UnitingOftheMind]]
+- [[Uniting of the Mind]]
 ## Second Mental Discipline
 >5.2:
 >The second mental discipline is acceptance of the completeness within your consciousness. It is not for a being of polarity in the physical consciousness to pick and choose among attributes, thus building the roles that cause blockages and confusions in the already-distorted mind complex. Each acceptance smooths part of the many distortions that the faculty you call judgment engenders.  

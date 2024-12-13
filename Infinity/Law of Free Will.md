@@ -19,7 +19,7 @@ Thus to violate the free will of other beings can be seen as one of the "worst" 
 
 Thus to ignore the free will of other beings can be seen as one of the "worst" thing one can do, from a perspective of STO beings.
 
-- 3.14: There is a law which we believe to be one of the more significant primal distortions of the Law of One. That is the Law of Confusion. You have called this the Law of Free Will
+- [[Session 3#3.14]]: There is a law which we believe to be one of the more significant primal distortions of the Law of One. That is the Law of Confusion. You have called this the Law of Free Will.
 - 10.12: The Law of One has as one of its primal distortions the free will distortion
 - 13.8: one of its primal distortions, freedom of will
 

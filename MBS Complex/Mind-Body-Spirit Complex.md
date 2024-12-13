@@ -9,7 +9,7 @@ Each human entity in 3D is made up of the following components:
 - [[The Body]]
 - [[The Spirit]]
 
-29.26: Each mind/body/spirit complex is an unique portion of the [[The Infinite Creator|One Creator]].
+29.26: Each mind/body/spirit complex is an unique portion of the [[The One Infinite Creator|One Creator]].
 
 18.5:
 - The proper role of the entity is in [[3rd Density|this density]] to experience all things desired, to then analyze, understand, and accept these experiences, distilling from them the love/light within them. Nothing shall be overcome. That which is not needed falls away.

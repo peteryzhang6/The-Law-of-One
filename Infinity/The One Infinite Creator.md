@@ -1,9 +1,4 @@
----
-aliases:
-  - One Being
-  - One Creator
----
-# The Infinite Creator
+# The One Infinite Creator
 
 11.15: all beings serve the Creator "through [[The Law of One]]"
 
